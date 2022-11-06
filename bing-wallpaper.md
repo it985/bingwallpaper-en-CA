@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-07 | [Runners in the 1990 New York City Marathon crossing the Verrazzano-Narrows Bridge (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_EN-CA6388282758_UHD.jpg) 
+
 2022-11-05 | [Depiction of deities from the Tomb of Tutankhamun at the Egyptian Museum, Cairo, Egypt (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_EN-CA0440553272_UHD.jpg) 
 
 2022-11-02 | [Skeletons (calacas) dressed up for Día de los Muertos celebrations in Mexico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_EN-CA1131179613_UHD.jpg) 
