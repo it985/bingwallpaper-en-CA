@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-11 | [Peyto Lake, Banff National Park, Alberta, Canada (© Ben Girardi/Cavan Images)](https://global.bing.com/th?id=OHR.PeytoIce_EN-CA5899020103_UHD.jpg) 
+
 2022-11-10 | [European hedgehog in Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_EN-CA6777751359_UHD.jpg) 
 
 2022-11-09 | [Sky lanterns take flight during the Yi Peng Festival in Chiang Mai, Thailand (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_EN-CA0675797489_UHD.jpg) 
