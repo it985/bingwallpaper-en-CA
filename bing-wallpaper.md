@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.MountAbu_EN-CA1039424298_UHD.jpg) 
+
 2022-11-13 | [Group of bald eagles near Haines, Alaska (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_EN-CA6987738182_UHD.jpg) 
 
 2022-11-12 | [An aerial picture of the Canadian National Vimy Memorial in Vimy Ridge, France (© Denis Charlet/AFP via Getty Images)](https://global.bing.com/th?id=OHR.VimyRidge_EN-CA2093598153_UHD.jpg) 
