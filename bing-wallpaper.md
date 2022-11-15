@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-16 | [North American river otters swimming in Acadia National Park, Maine (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_EN-CA0938433878_UHD.jpg) 
+
 2022-11-15 | [Ruins of the medieval castle of the Knights of St. John above the village of Chorio, Halki Island, Greece (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_EN-CA0820114450_UHD.jpg) 
 
 2022-11-14 | [Mount Abu and the Aravalli Range in Rajasthan, India (© saiko3p/Shutterstock)](https://global.bing.com/th?id=OHR.MountAbu_EN-CA1039424298_UHD.jpg) 
