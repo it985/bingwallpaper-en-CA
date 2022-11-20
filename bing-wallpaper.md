@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-21 | [Land art painting entitled 'World in Progress II' by artist Saype at the Headquarters of the United Nations in New York City (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_EN-CA4503438649_UHD.jpg) 
+
 2022-11-20 | [Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.ZNPVR_EN-CA2895767008_UHD.jpg) 
 
 2022-11-19 | [The gates of the Royal Palace (Dar El Makhzen) in Fez, Morocco (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_EN-CA4337871348_UHD.jpg) 
