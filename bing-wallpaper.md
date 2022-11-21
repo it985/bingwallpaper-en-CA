@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-22 | [Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_EN-CA2857801995_UHD.jpg) 
+
 2022-11-21 | [Land art painting entitled 'World in Progress II' by artist Saype at the Headquarters of the United Nations in New York City (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_EN-CA4503438649_UHD.jpg) 
 
 2022-11-20 | [Virgin River in Zion National Park, Utah (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.ZNPVR_EN-CA2895767008_UHD.jpg) 
