@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Sunflower (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_EN-CA2967094073_UHD.jpg) 
+
 2022-11-23 | [Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_EN-CA5766790795_UHD.jpg) 
 
 2022-11-22 | [Ahmad Bin Ali Stadium in Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_EN-CA2857801995_UHD.jpg) 
