@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-25 | [Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)](https://global.bing.com/th?id=OHR.PreveliGorge_EN-CA2580883474_UHD.jpg) 
+
 2022-11-24 | [Sunflower (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_EN-CA2967094073_UHD.jpg) 
 
 2022-11-23 | [Red fox in Amsterdamse Waterleidingduinen Nature Reserve in the Netherlands (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_EN-CA5766790795_UHD.jpg) 
