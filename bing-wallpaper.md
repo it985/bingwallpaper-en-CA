@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-26 | [Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)](https://global.bing.com/th?id=OHR.OcalaNF_EN-CA3353114094_UHD.jpg) 
+
 2022-11-25 | [Preveli gorge with river and palm tree forest, South Chania, Crete, Greece (© borchee/Getty Images)](https://global.bing.com/th?id=OHR.PreveliGorge_EN-CA2580883474_UHD.jpg) 
 
 2022-11-24 | [Sunflower (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_EN-CA2967094073_UHD.jpg) 
