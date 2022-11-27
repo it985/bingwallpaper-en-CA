@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-28 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_EN-CA6474805804_UHD.jpg) 
+
 2022-11-27 | [People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto on November 30, 2013 (© Canadapanda/Shutterstock)](https://global.bing.com/th?id=OHR.CavalcadeNathans_EN-CA7552104655_UHD.jpg) 
 
 2022-11-26 | [Juniper Springs in Ocala National Forest, Florida (© Michael Warren/Getty Images)](https://global.bing.com/th?id=OHR.OcalaNF_EN-CA3353114094_UHD.jpg) 
