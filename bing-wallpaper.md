@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-03 | [Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_EN-CA1255112672_UHD.jpg) 
+
 2022-11-28 | [Cecropia leaf atop lobster claw petals, Mexico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_EN-CA6474805804_UHD.jpg) 
 
 2022-11-27 | [People watch the Christmas lights and fireworks at the Nathan Phillips Square in Toronto on November 30, 2013 (© Canadapanda/Shutterstock)](https://global.bing.com/th?id=OHR.CavalcadeNathans_EN-CA7552104655_UHD.jpg) 
