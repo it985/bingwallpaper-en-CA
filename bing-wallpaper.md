@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-05 | [Elephants near Mount Kilimanjaro, Amboseli National Park, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_EN-CA1609894075_UHD.jpg) 
+
 2022-12-04 | [Miami, Florida (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.MiamiDT_EN-CA1461956488_UHD.jpg) 
 
 2022-12-03 | [Tlikakila River Delta in Lake Clark National Park, Alaska (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_EN-CA1255112672_UHD.jpg) 
