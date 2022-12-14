@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-15 | [The 12 Days of Christmas display at Butchart Gardens, Vancouver, B.C. (© Michael Wheatley/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ButchartDisplay_EN-CA6004185985_UHD.jpg) 
+
 2022-12-14 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_EN-CA2765697996_UHD.jpg) 
 
 2022-12-13 | [Poinsettia plants (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_EN-CA2608421619_UHD.jpg) 
