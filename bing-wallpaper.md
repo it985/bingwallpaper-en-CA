@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-17 | [Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_EN-CA7409224831_UHD.jpg) 
+
 2022-12-16 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_EN-CA9106645870_UHD.jpg) 
 
 2022-12-15 | [The 12 Days of Christmas display at Butchart Gardens, Vancouver, B.C. (© Michael Wheatley/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ButchartDisplay_EN-CA6004185985_UHD.jpg) 
