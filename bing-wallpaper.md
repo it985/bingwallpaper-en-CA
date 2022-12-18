@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-19 | [South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_EN-CA7859689790_UHD.jpg) 
+
 2022-12-18 | [Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_EN-CA7684310227_UHD.jpg) 
 
 2022-12-17 | [Holiday lights in the Atlanta Botanical Garden in Georgia (© Natalia Kuzmina/Alamy)](https://global.bing.com/th?id=OHR.AtlantaLights_EN-CA7409224831_UHD.jpg) 
