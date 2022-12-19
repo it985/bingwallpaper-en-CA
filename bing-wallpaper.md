@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-20 | [A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_EN-CA8077808294_UHD.jpg) 
+
 2022-12-19 | [South Beach in Miami, Florida (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_EN-CA7859689790_UHD.jpg) 
 
 2022-12-18 | [Mountain goats at Glacier National Park in Montana (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_EN-CA7684310227_UHD.jpg) 
