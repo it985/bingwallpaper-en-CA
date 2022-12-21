@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-22 | [Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_EN-CA8386814077_UHD.jpg) 
+
 2022-12-21 | [Christmas market at Belvedere in Vienna, Austria (© Diyana Dimitrova/Alamy)](https://global.bing.com/th?id=OHR.PalaceBelvedere_EN-CA8291198823_UHD.jpg) 
 
 2022-12-20 | [A northern cardinal perched in a common winterberry bush in Marion County, Illinois (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_EN-CA8077808294_UHD.jpg) 
