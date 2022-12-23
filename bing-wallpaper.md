@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-24 | [Gentoo penguins in Antarctica (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_EN-CA8898685995_UHD.jpg) 
+
 2022-12-23 | [Christmas tree of the Galeries Lafayette in Paris, France (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_EN-CA8613804655_UHD.jpg) 
 
 2022-12-22 | [Sun halo over Lake Antermoia in the Dolomite Mountains of Italy (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.SolarHalo_EN-CA8386814077_UHD.jpg) 
