@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-10 | [Bison in Wind Cave National Park, South Dakota (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_EN-CA6076417444_UHD.jpg) 
+
 2023-01-09 | [Breckenridge, Colorado (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_EN-CA5923831450_UHD.jpg) 
 
 2023-01-08 | [Wool and mohair yarn (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_EN-CA3820120007_UHD.jpg) 
