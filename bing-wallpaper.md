@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-19 | [White Sands National Park, New Mexico (© Andrea Harrell/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WhiteSands_EN-CA9943658875_UHD.jpg) 
+
 2023-01-18 | [Muniellos Nature Reserve in Asturias, Spain (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_EN-CA8741558872_UHD.jpg) 
 
 2023-01-17 | [Mount Michener and a frozen Abraham Lake in Alberta, Canada (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_EN-CA8685760192_UHD.jpg) 
