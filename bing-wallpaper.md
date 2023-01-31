@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-01 | [Burchell's zebras, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_EN-CA5880090507_UHD.jpg) 
+
 2023-01-31 | [Ice and snow sailing European Championship on Lake Balaton in Hungary (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_EN-CA5928374623_UHD.jpg) 
 
 2023-01-30 | [Blackbird in Essex, England (© Bill Coster/Alamy)](https://global.bing.com/th?id=OHR.BlackbirdDay_EN-CA5971454214_UHD.jpg) 
