@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-10 | [Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_EN-CA5366412055_UHD.jpg) 
+
 2023-02-09 | [Ureddplassen rest area on the Helgelandskysten Norwegian Scenic Route, Norway (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_EN-CA5421356712_UHD.jpg) 
 
 2023-02-08 | [Village of Labro, Rieti Province, Italy (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_EN-CA5476476740_UHD.jpg) 
