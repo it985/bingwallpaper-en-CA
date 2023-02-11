@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-12 | [The Milky Way over Zabriskie Point, Death Valley, California (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_EN-CA3629612791_UHD.jpg) 
+
 2023-02-11 | [Ancient theater of Epidaurus in Argolis province, Greece (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_EN-CA2118667757_UHD.jpg) 
 
 2023-02-10 | [Lower Antelope Canyon near Page, Arizona (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_EN-CA5366412055_UHD.jpg) 
