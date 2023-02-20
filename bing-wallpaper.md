@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-21 | [Guggenheim Museum Bilbao, Bilbao, Spain (© Jeremy Horner/Getty Images)](https://global.bing.com/th?id=OHR.GB25Anni_EN-CA5188326397_UHD.jpg) 
+
 2023-02-20 | [Humpback whales, Maui, Hawaii (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_EN-CA4882579775_UHD.jpg) 
 
 2023-02-19 | [Eben Ice Caves, Upper Peninsula, Michigan (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_EN-CA4758595812_UHD.jpg) 
