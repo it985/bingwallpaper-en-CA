@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-24 | [Paris, France (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_EN-CA5215777755_UHD.jpg) 
+
 2023-02-23 | [Foster Covered Bridge in Cabot, Vermont (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.FosterCoveredBridge_EN-CA4173074432_UHD.jpg) 
 
 2023-02-22 | [French Quarter, New Orleans, Louisiana (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_EN-CA5086557420_UHD.jpg) 
