@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-02 | [Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.BridalVeilFalls_EN-CA6536590564_UHD.jpg) 
+
 2023-03-01 | [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_EN-CA6105901183_UHD.jpg) 
 
 2023-02-28 | [Polar bears asleep in Canada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_EN-CA5779985371_UHD.jpg) 
