@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-03 | [Negratín Reservoir, Granada, Spain (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_EN-CA6867640933_UHD.jpg) 
+
 2023-03-02 | [Bridalveil Fall, Yosemite National Park, California (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.BridalVeilFalls_EN-CA6536590564_UHD.jpg) 
 
 2023-03-01 | [Atrani, Amalfi Coast, Italy (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_EN-CA6105901183_UHD.jpg) 
