@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-06 | [Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)](https://global.bing.com/th?id=OHR.TokyoMoat_EN-CA5927780367_UHD.jpg) 
+
 2023-03-05 | [Road to Mount Pico, Portugal (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_EN-CA7378437603_UHD.jpg) 
 
 2023-03-04 | [Killer whales in the waters off Spildra, Norway (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_EN-CA7137099836_UHD.jpg) 
