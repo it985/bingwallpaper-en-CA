@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-08 | [Cabins in Valley Forge National Historic Site, Pennsylvania (© Mark C. Morris/Shutterstock)](https://global.bing.com/th?id=OHR.ValleyForge_EN-CA8209689981_UHD.jpg) 
+
 2023-03-07 | [Icelandic horses standing in a field, Iceland (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_EN-CA7850121224_UHD.jpg) 
 
 2023-03-06 | [Cherry trees in full bloom near the Imperial Palace with Tokyo Tower in the background, Tokyo, Japan (© Jon Arnold/Danita Delimont)](https://global.bing.com/th?id=OHR.TokyoMoat_EN-CA5927780367_UHD.jpg) 
