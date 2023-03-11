@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-12 | [Marshland, Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_EN-CA8978689578_UHD.jpg) 
+
 2023-03-11 | [Edale Valley, Peak District, England (© John Finney/Getty Images)](https://global.bing.com/th?id=OHR.EdaleValley_EN-CA7100838722_UHD.jpg) 
 
 2023-03-10 | [Rainbow over Waimea Canyon and Waipo'o Falls, Kauai, Hawaii (© Beverley Van Praagh/Getty Images)](https://global.bing.com/th?id=OHR.WaimeaRainbow_EN-CA8771216807_UHD.jpg) 
