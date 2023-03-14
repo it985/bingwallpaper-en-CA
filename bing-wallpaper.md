@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-15 | [Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_EN-CA7338158168_UHD.jpg) 
+
 2023-03-14 | [Flags of the Commonwealth of Nations (© hamzehsh12/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CommonwealthDay_EN-CA7270298645_UHD.jpg) 
 
 2023-03-13 | [National Theater, Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_EN-CA7224166640_UHD.jpg) 
