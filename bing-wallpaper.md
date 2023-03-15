@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-16 | [Agüero, Spain (© Andrea Comi/Getty Images)](https://global.bing.com/th?id=OHR.AgueroSpain_EN-CA7433351602_UHD.jpg) 
+
 2023-03-15 | [Labyrinth in Cyherbia Botanical Park, Cyprus (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_EN-CA7338158168_UHD.jpg) 
 
 2023-03-14 | [Flags of the Commonwealth of Nations (© hamzehsh12/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CommonwealthDay_EN-CA7270298645_UHD.jpg) 
