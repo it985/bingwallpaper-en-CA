@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-24 | [Lenticular clouds, Patagonia (© Sasha Juliard/Shutterstock)](https://global.bing.com/th?id=OHR.CloudsPatagonia_EN-CA8105235690_UHD.jpg) 
+
 2023-03-23 | [Lake Powell on the Colorado River, USA (© Peter Schaefer/Alamy)](https://global.bing.com/th?id=OHR.LakePowellAerial_EN-CA7986053756_UHD.jpg) 
 
 2023-03-22 | [Colorful pastel chalk (© Stephen Shepherd/plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_EN-CA7905441530_UHD.jpg) 
