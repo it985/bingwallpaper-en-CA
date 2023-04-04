@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-05 | [The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CanadianMuseumforHumanRights_EN-CA1657047279_UHD.jpg) 
+
 2023-04-04 | [Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_EN-CA3475856618_UHD.jpg) 
 
 2023-04-03 | [Bromo Tengger Semeru National Park, East Java, Indonesia (© Bento Fotography/Getty Images)](https://global.bing.com/th?id=OHR.JavaBromo_EN-CA8165428782_UHD.jpg) 
