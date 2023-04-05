@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-06 | [Black grouse males in Kuusamo, Finland (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_EN-CA3757244382_UHD.jpg) 
+
 2023-04-05 | [The Canadian Museum for Human Rights, Winnipeg (© Cavan Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CanadianMuseumforHumanRights_EN-CA1657047279_UHD.jpg) 
 
 2023-04-04 | [Pu'uhonua o Hōnaunau National Historical Park, Big Island, Hawaii (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.HonaunauNP_EN-CA3475856618_UHD.jpg) 
