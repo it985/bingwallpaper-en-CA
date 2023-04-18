@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-19 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_EN-CA6408902104_UHD.jpg) 
+
 2023-04-18 | [Haiku art installation, Kew Royal Botanic Gardens, London, England (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_EN-CA1056880093_UHD.jpg) 
 
 2023-04-17 | [Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_EN-CA8350748247_UHD.jpg) 
