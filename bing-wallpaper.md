@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-21 | [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_EN-CA2675419063_UHD.jpg) 
+
 2023-04-20 | [Taiwan yuhina pair, Alishan National Scenic Area, Taiwan (© Staffan Widstrand/Minden Pictures)](https://global.bing.com/th?id=OHR.TaiwanYuhina_EN-CA4124062370_UHD.jpg) 
 
 2023-04-19 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_EN-CA6408902104_UHD.jpg) 
