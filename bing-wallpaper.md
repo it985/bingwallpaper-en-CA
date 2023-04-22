@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-23 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_EN-CA7029456092_UHD.jpg) 
+
 2023-04-22 | [Procida, Italy (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_EN-CA6765392196_UHD.jpg) 
 
 2023-04-21 | [Aerial view of terraced rice fields, Yuanyang County, China (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_EN-CA2675419063_UHD.jpg) 
