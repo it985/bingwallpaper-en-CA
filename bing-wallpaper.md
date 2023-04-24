@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_EN-CA7671304444_UHD.jpg) 
+
 2023-04-24 | [Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-CA7363462491_UHD.jpg) 
 
 2023-04-23 | [Island fox in Channel Islands National Park, California (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_EN-CA7029456092_UHD.jpg) 
