@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-26 | [Adélie penguins in Antarctica (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_EN-CA9843813633_UHD.jpg) 
+
 2023-04-25 | [Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_EN-CA7671304444_UHD.jpg) 
 
 2023-04-24 | [Stuttgart Public Library, Germany (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_EN-CA7363462491_UHD.jpg) 
