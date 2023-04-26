@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-27 | [Cave and Basin National Historic Site, Sulphur Mountain, Banff National Park, Alberta (© Interfoto/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SulphurMountain_EN-CA6114398245_UHD.jpg) 
+
 2023-04-26 | [Adélie penguins in Antarctica (© David Merron Photography/Getty Images)](https://global.bing.com/th?id=OHR.AdelieWPD_EN-CA9843813633_UHD.jpg) 
 
 2023-04-25 | [Bavarian Forest wine cellar, Germany (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_EN-CA7671304444_UHD.jpg) 
