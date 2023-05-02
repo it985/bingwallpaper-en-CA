@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-03 | [Jöriseen lakes in the Silvretta Alps, Switzerland (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_EN-CA3650055090_UHD.jpg) 
+
 2023-05-02 | [Quebec Bridge across the lower Saint Lawrence River, Canada (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_EN-CA3237720011_UHD.jpg) 
 
 2023-05-01 | [Preservation Hall, New Orleans, Louisiana (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_EN-CA2845933344_UHD.jpg) 
