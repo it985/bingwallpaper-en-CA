@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-09 | [Delicate Arch, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_EN-CA4654232562_UHD.jpg) 
+
 2023-05-08 | [Seal pup, Lundy Island, England (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_EN-CA4389975805_UHD.jpg) 
 
 2023-05-07 | [Royal azaleas in bloom on Hwangmaesan Mountain, South Korea (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_EN-CA3683784654_UHD.jpg) 
