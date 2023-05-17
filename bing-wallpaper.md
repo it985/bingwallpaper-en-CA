@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-18 | [Natural Bridges State Beach in Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_EN-CA1169657962_UHD.jpg) 
+
 2023-05-17 | [Canoe paddling in Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_EN-CA0519701968_UHD.jpg) 
 
 2023-05-16 | [Morro Jable and Playa del Matorral, Fuerteventura, Canary Islands, Spain (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_EN-CA0180239017_UHD.jpg) 
