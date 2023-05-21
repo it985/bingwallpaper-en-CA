@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [River Seine, Paris, France (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_EN-CA1450202223_UHD.jpg) 
+
 2023-05-21 | [European honeybees in Sheffield, England (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_EN-CA0674085037_UHD.jpg) 
 
 2023-05-20 | [Sumatran rhinoceros (Dicerorhinus sumatrensis) female eating leaves, Way Kambas National Park, Sumatra, Indonesia (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_EN-CA9307107910_UHD.jpg) 
