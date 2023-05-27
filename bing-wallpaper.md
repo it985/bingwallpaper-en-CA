@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-28 | [Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_EN-CA3649196297_UHD.jpg) 
+
 2023-05-27 | [Wat Sri Sawai in Sukhothai Historical Park, Thailand (© Casper1774 Studio/Shutterstock)](https://global.bing.com/th?id=OHR.WatSriSawai_EN-CA3444839029_UHD.jpg) 
 
 2023-05-26 | [Saksun, Faroe Islands, Denmark (© miroslav_1/Getty Images)](https://global.bing.com/th?id=OHR.SaksunFaroe_EN-CA3079293689_UHD.jpg) 
