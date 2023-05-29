@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-30 | [Boardwalk on hiking trail to Western Brook Pond in Gros Morne National Park (© Cavan Images - Offset/Shutterstock)](https://global.bing.com/th?id=OHR.WesternBrookPond_EN-CA4178913007_UHD.jpg) 
+
 2023-05-29 | [Tegallalang terrace farms in Ubud, Bali, Indonesia (© Cavan Images/Adobe Stock)](https://global.bing.com/th?id=OHR.TegallalangTerrace_EN-CA3866913574_UHD.jpg) 
 
 2023-05-28 | [Quiver trees in Namibia (© Fotofeeling/DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.AloeDichotomum_EN-CA3649196297_UHD.jpg) 
