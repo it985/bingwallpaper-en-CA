@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-07 | [The chalk cliffs of Étretat, Normandy, France (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_EN-CA8943681695_UHD.jpg) 
+
 2023-06-06 | ['Priscilla the Parrotfish' art installation at Como Park Zoo & Conservatory, St. Paul, Minnesota (© Michael Siluk/UCG/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.PlasticParrotfish_EN-CA8618162812_UHD.jpg) 
 
 2023-06-05 | [Black sand beach at Wai'anapanapa State Park, Maui, Hawaii (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.MauiBeach_EN-CA7509098189_UHD.jpg) 
