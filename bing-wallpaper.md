@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Synchronous fireflies, Great Smoky Mountains National Park, Tennessee (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_EN-CA2162258786_UHD.jpg) 
+
 2023-06-15 | [Waterfalls in Sunwapta Valley, Jasper National Park, Canada (© Delpixart/Getty Images)](https://global.bing.com/th?id=OHR.WaterfallsSunwaptaValley_EN-CA1919679113_UHD.jpg) 
 
 2023-06-14 | [Spanish moss trees over a boardwalk in the Okefenokee Swamp, Folkston, Georgia (© Emmer Photo/Alamy)](https://global.bing.com/th?id=OHR.OkefenokeeSwamp_EN-CA1632348115_UHD.jpg) 
