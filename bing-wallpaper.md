@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-21 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_EN-CA0054337816_UHD.jpg) 
+
 2023-06-20 | [Stonehenge, Salisbury Plain, Wiltshire, England (© Captain Skyhigh/Getty Images)](https://global.bing.com/th?id=OHR.StonehengeSalisbury_EN-CA5914565935_UHD.jpg) 
 
 2023-06-19 | [Common tern father with chick, Nickerson Beach, Long Island, New York (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TernFather_EN-CA5311897317_UHD.jpg) 
