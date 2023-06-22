@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-23 | [Amazon rainforest, Peru (© Rhett Ayers Butler/Getty Images)](https://global.bing.com/th?id=OHR.PeruAmazon_EN-CA6924554340_UHD.jpg) 
+
 2023-06-22 | [Ancient rock carvings at Petroglyph Provincial Park in Nanaimo, Canada (© Chase Clausen/Shutterstock)](https://global.bing.com/th?id=OHR.NationalIndigenousPeoplesDay_EN-CA7883814929_UHD.jpg) 
 
 2023-06-21 | [Bald eagle, Tongass National Forest, Alaska (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_EN-CA0054337816_UHD.jpg) 
