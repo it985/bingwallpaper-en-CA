@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Al-Khazneh (the Treasury), Petra, Jordan (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_EN-CA7803923526_UHD.jpg) 
+
 2023-06-25 | [Nha Phu Bay, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.NhaTrang_EN-CA7533829372_UHD.jpg) 
 
 2023-06-24 | [Monarch butterflies feeding from wildflowers (© bookguy/Getty Images)](https://global.bing.com/th?id=OHR.PollinatorMonarch_EN-CA7193527591_UHD.jpg) 
