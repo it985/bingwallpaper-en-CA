@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Rainbow flags and confetti (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_EN-CA3805551224_UHD.jpg) 
+
 2023-06-28 | [Sedona, Arizona (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_EN-CA8514626005_UHD.jpg) 
 
 2023-06-27 | [Château de Villandry and its garden, Loire Valley, France (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_EN-CA8263802349_UHD.jpg) 
