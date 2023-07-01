@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-02 | [Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)](https://global.bing.com/th?id=OHR.CanadaDay_EN-CA1530076015_UHD.jpg) 
+
 2023-07-01 | [Brown bear mother and cub, Lake Clark National Park and Preserve, Alaska (© Carlos Carreno/Getty Images)](https://global.bing.com/th?id=OHR.ClamBears_EN-CA1275958061_UHD.jpg) 
 
 2023-06-30 | [Banyak Islands, Sumatra, Indonesia (© fbxx/Getty Images)](https://global.bing.com/th?id=OHR.BanyakIslands_EN-CA9071693780_UHD.jpg) 
