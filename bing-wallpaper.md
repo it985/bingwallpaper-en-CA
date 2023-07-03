@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-04 | [A coyote in Banff, Canada (© Harry Collins/Getty Images)](https://global.bing.com/th?id=OHR.CoyoteBanff_EN-CA7644442660_UHD.jpg) 
+
 2023-07-03 | [Veluwemeer Aqueduct, Netherlands (© Frolova_Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_EN-CA7959103505_UHD.jpg) 
 
 2023-07-02 | [Parliament Hill in Ottawa, Ontario, Canada (© f11photo/Shutterstock)](https://global.bing.com/th?id=OHR.CanadaDay_EN-CA1530076015_UHD.jpg) 
