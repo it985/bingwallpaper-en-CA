@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-14 | [Zhangye Danxia National Geopark, Gansu, China (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_EN-CA4785678107_UHD.jpg) 
+
 2023-07-13 | [Sand bar in Nakupenda Beach Nature Reserve, Zanzibar, Tanzania  (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_EN-CA4586255902_UHD.jpg) 
 
 2023-07-12 | [Hong Kong SAR (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_EN-CA4318627098_UHD.jpg) 
