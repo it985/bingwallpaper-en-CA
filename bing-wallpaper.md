@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-24 | [The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CalgaryCentralLibrary_EN-CA0835286541_UHD.jpg) 
+
 2023-07-23 | [Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_EN-CA5490091485_UHD.jpg) 
 
 2023-07-22 | [Storseisundet Bridge, Atlantic Ocean Road, Norway (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_EN-CA4942449950_UHD.jpg) 
