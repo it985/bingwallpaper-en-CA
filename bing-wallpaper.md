@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-25 | [Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_EN-CA7365011732_UHD.jpg) 
+
 2023-07-24 | [The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CalgaryCentralLibrary_EN-CA0835286541_UHD.jpg) 
 
 2023-07-23 | [Hammock camping in a bald cypress tree, Florida (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockDay_EN-CA5490091485_UHD.jpg) 
