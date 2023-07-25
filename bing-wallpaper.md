@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-26 | [Laguna de Torrevieja, Alicante, Spain (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.LasLagunas_EN-CA3169197805_UHD.jpg) 
+
 2023-07-25 | [Zebras in Tarangire National Park, Tanzania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_EN-CA7365011732_UHD.jpg) 
 
 2023-07-24 | [The Calgary Central Library, also known as the Calgary New Central Library (© Rick Rudnicki/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CalgaryCentralLibrary_EN-CA0835286541_UHD.jpg) 
