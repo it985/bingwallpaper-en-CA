@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-01 | [Rock House, Hocking Hills State Park, Ohio (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_EN-CA8158146840_UHD.jpg) 
+
 2023-07-31 | [Farmland in the Palouse, Washington (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_EN-CA7890546720_UHD.jpg) 
 
 2023-07-30 | [Bengal tiger, Ranthambore National Park, India (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_EN-CA7357427404_UHD.jpg) 
