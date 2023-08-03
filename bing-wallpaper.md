@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-04 | [Helmcken waterfall in Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/iStock/Getty Images)](https://global.bing.com/th?id=OHR.HelmckenWaterfall_EN-CA1606911652_UHD.jpg) 
+
 2023-08-03 | [Sandstone butte in Capitol Reef National Park, Utah (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_EN-CA0894601659_UHD.jpg) 
 
 2023-08-02 | [Confederation Bridge, Prince Edward Island, Canada (© Henryk Sadura/Getty Images)](https://global.bing.com/th?id=OHR.ConfederationBridge_EN-CA0324940251_UHD.jpg) 
