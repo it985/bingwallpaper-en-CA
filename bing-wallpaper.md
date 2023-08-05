@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-06 | [Atlantic puffin, Iceland (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_EN-CA4124634639_UHD.jpg) 
+
 2023-08-05 | [Tintern Abbey, Wales (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_EN-CA2316999585_UHD.jpg) 
 
 2023-08-04 | [Helmcken waterfall in Wells Gray Provincial Park, British Columbia, Canada (© Laurens Verhoeven/iStock/Getty Images)](https://global.bing.com/th?id=OHR.HelmckenWaterfall_EN-CA1606911652_UHD.jpg) 
