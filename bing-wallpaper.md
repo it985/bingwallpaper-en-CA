@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [Highways in Taipei, Taiwan (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_EN-CA5246194067_UHD.jpg) 
+
 2023-08-08 | [Bodie Island Lighthouse, Nags Head, North Carolina (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_EN-CA4787618532_UHD.jpg) 
 
 2023-08-07 | [Kagami-ike (Mirror Pond), Nagano, Japan (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_EN-CA4585044401_UHD.jpg) 
