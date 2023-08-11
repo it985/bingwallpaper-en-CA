@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-12 | [Gwaii Haanas National Park Reserve and Haida Heritage Site, British Columbia, Canada (© Don Johnston_WC/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.GwaiiHaanasNP_EN-CA1703637950_UHD.jpg) 
+
 2023-08-11 | [A lion in Maasai Mara, Kenya (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WorldLionDay_EN-CA5879776068_UHD.jpg) 
 
 2023-08-10 | [Indigenous artwork, Ngaruwanajirri Art Centre, Wurrumiyanga, Bathurst Island, Australia (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_EN-CA8063665143_UHD.jpg) 
