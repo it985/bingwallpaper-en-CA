@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-16 | [Piazza IX Aprile, Taormina, Sicily, Italy (© rudi1976/Alamy)](https://global.bing.com/th?id=OHR.TaorminaSquare_EN-CA4217328714_UHD.jpg) 
+
 2023-08-15 | [Tiny gecko on leaf (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_EN-CA2090608555_UHD.jpg) 
 
 2023-08-14 | [Perseid meteor shower, Cottonwood Canyon State Park, Oregon (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_EN-CA0554246063_UHD.jpg) 
