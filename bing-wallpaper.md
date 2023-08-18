@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-19 | [The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.CanadianNationalExhibition_EN-CA5064154941_UHD.jpg) 
+
 2023-08-18 | ['Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_EN-CA1615371871_UHD.jpg) 
 
 2023-08-17 | [Overseas Highway in the Florida Keys (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_EN-CA8368816644_UHD.jpg) 
