@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_EN-CA5598208236_UHD.jpg) 
+
 2023-08-19 | [The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.CanadianNationalExhibition_EN-CA5064154941_UHD.jpg) 
 
 2023-08-18 | ['Avatar Mountains,' Zhangjiajie National Forest Park, China (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_EN-CA1615371871_UHD.jpg) 
