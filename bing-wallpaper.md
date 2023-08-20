@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-21 | [Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_EN-CA6009184679_UHD.jpg) 
+
 2023-08-20 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_EN-CA5598208236_UHD.jpg) 
 
 2023-08-19 | [The Canadian International Air Show in Marilyn Bell Park (© Melissa Renwick/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.CanadianNationalExhibition_EN-CA5064154941_UHD.jpg) 
