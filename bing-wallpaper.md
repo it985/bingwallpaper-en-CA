@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-22 | [Emerald Lake, South Klondike Highway, Yukon, Canada (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_EN-CA2255788946_UHD.jpg) 
+
 2023-08-21 | [Start Point Lighthouse, South Devon, England (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_EN-CA6009184679_UHD.jpg) 
 
 2023-08-20 | [Squirrel looking into the lens of a camera (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_EN-CA5598208236_UHD.jpg) 
