@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-25 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_EN-CA8445194301_UHD.jpg) 
+
 2023-08-24 | [Skógafoss waterfall, Iceland (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_EN-CA7806747245_UHD.jpg) 
 
 2023-08-23 | [Amphitheatre of El Jem, Tunisia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_EN-CA6113114508_UHD.jpg) 
