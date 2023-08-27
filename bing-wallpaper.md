@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-28 | [Seongsan Ilchulbong, a tuff cone on Jeju Island, South Korea (© Quynh Anh Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.JejuIsland_EN-CA8677154280_UHD.jpg) 
+
 2023-08-27 | [Berlin Cathedral and Museum Island, Berlin, Germany (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_EN-CA8030435782_UHD.jpg) 
 
 2023-08-26 | [Lower Yellowstone Falls, Yellowstone National Park, Wyoming (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_EN-CA1817504425_UHD.jpg) 
