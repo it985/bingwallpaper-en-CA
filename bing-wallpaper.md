@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-04 | [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_EN-CA6943938850_UHD.jpg) 
+
 2023-09-03 | [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_EN-CA4440623117_UHD.jpg) 
 
 2023-09-02 | [Turkey tail mushroom, Brevard, North Carolina (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_EN-CA2729302762_UHD.jpg) 
