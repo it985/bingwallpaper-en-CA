@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-05 | [Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_EN-CA7725955202_UHD.jpg) 
+
 2023-09-04 | [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_EN-CA6943938850_UHD.jpg) 
 
 2023-09-03 | [Allen's hummingbird, Santa Cruz, California (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_EN-CA4440623117_UHD.jpg) 
