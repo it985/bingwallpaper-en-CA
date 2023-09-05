@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-06 | [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_EN-CA8072268665_UHD.jpg) 
+
 2023-09-05 | [Camels in the desert, United Arab Emirates (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_EN-CA7725955202_UHD.jpg) 
 
 2023-09-04 | [Aerial view of Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_EN-CA6943938850_UHD.jpg) 
