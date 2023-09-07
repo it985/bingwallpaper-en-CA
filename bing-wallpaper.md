@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-08 | [Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)](https://global.bing.com/th?id=OHR.TIFFCanada_EN-CA9189506488_UHD.jpg) 
+
 2023-09-07 | [Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_EN-CA1720286368_UHD.jpg) 
 
 2023-09-06 | [Mount Segla, Senja Island, Troms og Finnmark, Norway (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_EN-CA8072268665_UHD.jpg) 
