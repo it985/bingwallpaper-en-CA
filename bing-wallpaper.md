@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-09 | [The Circus townhouses in Bath, Somerset, England (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_EN-CA7255075519_UHD.jpg) 
+
 2023-09-08 | [Scenic view at Toronto city waterfront skyline at sunset (© Elena Elisseeva/Shutterstock)](https://global.bing.com/th?id=OHR.TIFFCanada_EN-CA9189506488_UHD.jpg) 
 
 2023-09-07 | [Old Venetian harbour, Rethymno, Crete Island, Greece (© Gatsi/Getty Images)](https://global.bing.com/th?id=OHR.CreteHarbor_EN-CA1720286368_UHD.jpg) 
