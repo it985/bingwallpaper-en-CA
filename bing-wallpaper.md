@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [French River, Ontario, Canada (© Tim Fitzharris/Minden)](https://global.bing.com/th?id=OHR.FrenchRiver_EN-CA1479049417_UHD.jpg) 
+
 2023-09-11 | [Walrus pair at sea in Svalbard, Norway (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_EN-CA7767878500_UHD.jpg) 
 
 2023-09-10 | [Wat Chaiwatthanaram temple, Ayutthaya Historical Park, Thailand (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_EN-CA7395171545_UHD.jpg) 
