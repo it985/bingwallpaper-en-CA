@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_EN-CA5055413725_UHD.jpg) 
+
 2023-09-22 | [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_EN-CA0407219199_UHD.jpg) 
 
 2023-09-21 | [Roman-inspired aqueduct, Arkadia Park, Poland (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_EN-CA0264862956_UHD.jpg) 
