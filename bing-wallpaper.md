@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-24 | [The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.NuitBlanche_EN-CA7519752130_UHD.jpg) 
+
 2023-09-23 | [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_EN-CA5055413725_UHD.jpg) 
 
 2023-09-22 | [Inside the Nobel Peace Center, Oslo, Norway (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_EN-CA0407219199_UHD.jpg) 
