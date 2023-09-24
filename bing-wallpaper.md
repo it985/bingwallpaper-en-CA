@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-25 | [The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_EN-CA9274002472_UHD.jpg) 
+
 2023-09-24 | [The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.NuitBlanche_EN-CA7519752130_UHD.jpg) 
 
 2023-09-23 | [Southern white rhinoceros males, Shamwari Private Game Reserve, South Africa (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_EN-CA5055413725_UHD.jpg) 
