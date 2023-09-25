@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-26 | [Sea otter in Bartlett Cove, Glacier Bay National Park and Preserve, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_EN-CA0481969392_UHD.jpg) 
+
 2023-09-25 | [The Fraser River near Mount Robson, British Columbia, Canada (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_EN-CA9274002472_UHD.jpg) 
 
 2023-09-24 | [The light installation 'Global Rainbow' by artist Yvette Mattern (© David Cooper/Contributor/Getty Images)](https://global.bing.com/th?id=OHR.NuitBlanche_EN-CA7519752130_UHD.jpg) 
