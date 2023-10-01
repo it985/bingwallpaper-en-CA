@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-02 | [Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)](https://global.bing.com/th?id=OHR.AssiniboineProvincialPark_EN-CA8602465476_UHD.jpg) 
+
 2023-10-01 | [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_EN-CA5764050282_UHD.jpg) 
 
 2023-09-30 | [Jiaxiu Tower under a full moon, Guiyang, Guizhou province, China (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_EN-CA4101915787_UHD.jpg) 
