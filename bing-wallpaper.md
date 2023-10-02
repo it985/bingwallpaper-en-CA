@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-03 | [Louis Vuitton Foundation in the Bois de Boulogne, Paris, France (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.VuittonFoundation_EN-CA9761404070_UHD.jpg) 
+
 2023-10-02 | [Mount Assiniboine Provincial Park, Canada (© matt macpherson/500px/Getty Images)](https://global.bing.com/th?id=OHR.AssiniboineProvincialPark_EN-CA8602465476_UHD.jpg) 
 
 2023-10-01 | [Fall colors in Shenandoah National Park, Virginia (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.ShenandoahFoliage_EN-CA5764050282_UHD.jpg) 
