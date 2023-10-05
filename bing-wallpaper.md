@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-06 | [Gentoo penguins, Antarctica (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_EN-CA2629895770_UHD.jpg) 
+
 2023-10-05 | [Young stars forming in the Tarantula Nebula, James Webb Space Telescope (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_EN-CA1819818783_UHD.jpg) 
 
 2023-10-04 | [Whitehaven Beach, Whitsunday Island, Queensland, Australia (© Coral Brunner/Shutterstock)](https://global.bing.com/th?id=OHR.WhitsundaySwirl_EN-CA0561519607_UHD.jpg) 
