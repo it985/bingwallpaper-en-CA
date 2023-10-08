@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-09 | [Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_EN-CA5481938975_UHD.jpg) 
+
 2023-10-08 | [Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_EN-CA5155258695_UHD.jpg) 
 
 2023-10-07 | [Taughannock Falls State Park in Trumansburg, New York (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_EN-CA4255977143_UHD.jpg) 
