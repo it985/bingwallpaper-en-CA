@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)](https://global.bing.com/th?id=OHR.ThanksgivingDay_EN-CA6565882880_UHD.jpg) 
+
 2023-10-09 | [Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_EN-CA5481938975_UHD.jpg) 
 
 2023-10-08 | [Brown bears fishing for salmon at Brooks Falls, Katmai National Park, Alaska (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_EN-CA5155258695_UHD.jpg) 
