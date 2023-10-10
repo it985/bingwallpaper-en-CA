@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-11 | [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_EN-CA7192240724_UHD.jpg) 
+
 2023-10-10 | [A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)](https://global.bing.com/th?id=OHR.ThanksgivingDay_EN-CA6565882880_UHD.jpg) 
 
 2023-10-09 | [Veined octopus in a giant clam shell, Sulawesi Sea, Indonesia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OctoClam_EN-CA5481938975_UHD.jpg) 
