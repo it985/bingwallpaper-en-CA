@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [The Painted Hills in John Day Fossil Beds National Monument, Oregon (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_EN-CA7523702449_UHD.jpg) 
+
 2023-10-11 | [Mount Sopris, Colorado (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_EN-CA7192240724_UHD.jpg) 
 
 2023-10-10 | [A bowl full of cranberries, Ontario, Canada (© plainpicture/Design Pics/Julie DeRoche)](https://global.bing.com/th?id=OHR.ThanksgivingDay_EN-CA6565882880_UHD.jpg) 
