@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | ['Ring of fire' annular solar eclipse, Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_EN-CA9562501556_UHD.jpg) 
+
 2023-10-14 | [Milky Way over Athabasca Glacier in Jasper National Park, Canada (© Alan Dyer/Stocktrek Images/Getty Images)](https://global.bing.com/th?id=OHR.JasperDarkSky_EN-CA2696799126_UHD.jpg) 
 
 2023-10-13 | [Old barn and canola field, Palouse region, Idaho (© Terry Eggers/Getty Images)](https://global.bing.com/th?id=OHR.IdahoBarn_EN-CA8292680751_UHD.jpg) 
