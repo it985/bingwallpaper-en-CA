@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-18 | [Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_EN-CA4053574764_UHD.jpg) 
+
 2023-10-17 | [Golden larches and Prusik Peak, Enchantments, Washington (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenEnchantments_EN-CA6678798259_UHD.jpg) 
 
 2023-10-16 | [European hedgehog sheltering in tree bark, Sussex, England (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_EN-CA1617213457_UHD.jpg) 
