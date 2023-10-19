@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-20 | [Water lily harvest, Mekong River Delta, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_EN-CA3498519464_UHD.jpg) 
+
 2023-10-19 | [Kodiak National Wildlife Refuge, Kodiak Island, Alaska (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_EN-CA4966075486_UHD.jpg) 
 
 2023-10-18 | [Vieste on the Gargano peninsula, Apulia, Italy (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_EN-CA4053574764_UHD.jpg) 
