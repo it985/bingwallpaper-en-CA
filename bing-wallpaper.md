@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-24 | [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_EN-CA7244464790_UHD.jpg) 
+
 2023-10-23 | [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_EN-CA6850863265_UHD.jpg) 
 
 2023-10-22 | [Reliefs in the ancient Persian city of Persepolis, Iran (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_EN-CA3883150383_UHD.jpg) 
