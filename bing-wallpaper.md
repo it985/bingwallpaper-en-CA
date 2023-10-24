@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Füzér Castle in the Zemplén Mountains, Hungary (© ZGPhotography/Alamy)](https://global.bing.com/th?id=OHR.FuzerCastle_EN-CA7732485068_UHD.jpg) 
+
 2023-10-24 | [Corn maze in Saylorsburg, Pennsylvania (© Alex Potemkin/Getty Images)](https://global.bing.com/th?id=OHR.PoconosMaze_EN-CA7244464790_UHD.jpg) 
 
 2023-10-23 | [Astoria-Megler Bridge on the Columbia River, Astoria, Oregon (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_EN-CA6850863265_UHD.jpg) 
