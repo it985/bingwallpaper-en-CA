@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-02 | [Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)](https://global.bing.com/th?id=OHR.KennyLake_EN-CA8728888429_UHD.jpg) 
+
 2023-11-01 | [Halloween jack-o'-lanterns on a porch (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenPorchAI_EN-CA3930068285_UHD.jpg) 
 
 2023-10-31 | [Common raven sitting on a branch (© WildMedia/Shutterstock)](https://global.bing.com/th?id=OHR.AutumnRaven_EN-CA4419353376_UHD.jpg) 
