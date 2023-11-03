@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-04 | [Pacific sea nettles off the coast of Carmel, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SeaNettles_EN-CA9566858218_UHD.jpg) 
+
 2023-11-03 | [Salt flats in Badwater Basin, Death Valley National Park, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_EN-CA1198196681_UHD.jpg) 
 
 2023-11-02 | [Kenny Lake at dawn, Lake Superior Provincial Park, Ontario, Canada (© Don Johnston/agefotostock)](https://global.bing.com/th?id=OHR.KennyLake_EN-CA8728888429_UHD.jpg) 
