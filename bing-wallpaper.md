@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-08 | [Kirkilai lakes and lookout tower, Biržai Regional Park, Lithuania (© MNStudio/Shutterstock)](https://global.bing.com/th?id=OHR.KirkilaiTower_EN-CA3981412668_UHD.jpg) 
+
 2023-11-07 | [Lake Pehoé, Torres del Paine National Park, southern Chile (© OST/Getty Images)](https://global.bing.com/th?id=OHR.LagoPehoe_EN-CA3476467386_UHD.jpg) 
 
 2023-11-06 | [Quartzite formation, Playa del Silencio, Asturias, Spain (© Jean-Philippe Delobelle/Minden Pictures)](https://global.bing.com/th?id=OHR.SilencioSpain_EN-CA4767274689_UHD.jpg) 
