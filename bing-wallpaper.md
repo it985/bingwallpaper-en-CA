@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [Old olive grove in the Serra Tramuntana range, Majorca, Spain (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_EN-CA6897943946_UHD.jpg) 
+
 2023-11-13 | [Lamps on the banks of the Sarayu River on Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_EN-CA6612149437_UHD.jpg) 
 
 2023-11-12 | [Autumnal woodland and Young Peak, British Columbia, Canada (© David Noton/Minden)](https://global.bing.com/th?id=OHR.YoungPeaks_EN-CA5929270890_UHD.jpg) 
