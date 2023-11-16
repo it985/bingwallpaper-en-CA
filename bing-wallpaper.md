@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-17 | [Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.VanDusenGarden_EN-CA9959447598_UHD.jpg) 
+
 2023-11-16 | [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_EN-CA7793725097_UHD.jpg) 
 
 2023-11-15 | [Russell lupines along Lake Tekapo, South Island, New Zealand (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_EN-CA8718015949_UHD.jpg) 
