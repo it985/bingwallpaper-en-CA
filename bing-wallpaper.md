@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-18 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_EN-CA5987452710_UHD.jpg) 
+
 2023-11-17 | [Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.VanDusenGarden_EN-CA9959447598_UHD.jpg) 
 
 2023-11-16 | [Rapa Valley in Sarek National Park, Sweden (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_EN-CA7793725097_UHD.jpg) 
