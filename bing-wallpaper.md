@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-19 | [Polar bear mother and cubs, Churchill, Manitoba, Canada (© Thorsten Milse/Getty Images)](https://global.bing.com/th?id=OHR.MilsePolarBear_EN-CA6389230764_UHD.jpg) 
+
 2023-11-18 | [Bad River in Copper Falls State Park, Wisconsin (© Big Joe/Getty Images)](https://global.bing.com/th?id=OHR.BadRiver_EN-CA5987452710_UHD.jpg) 
 
 2023-11-17 | [Festival of Lights, VanDusen Botanical Garden, Vancouver (© Wiliam Perry/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.VanDusenGarden_EN-CA9959447598_UHD.jpg) 
