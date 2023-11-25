@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Mount Logan in Kluane National Park and Reserve, Yukon, Canada (© A. Michael Brown/Shutterstock)](https://global.bing.com/th?id=OHR.KluaneNationalPark_EN-CA2444890279_UHD.jpg) 
+
 2023-11-25 | [Hall of Mosses trail in the Hoh Rain Forest, Olympic National Park, Washington (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_EN-CA2734980649_UHD.jpg) 
 
 2023-11-24 | [Sunset at Teide National Park, Tenerife, Canary Islands, Spain (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_EN-CA3367560781_UHD.jpg) 
