@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-03 | [North Gate of Angkor Thom, Angkor Archaeological Park, Cambodia (© Amazing Travel Lifestyle/Shutterstock)](https://global.bing.com/th?id=OHR.AngkorPark_EN-CA3208481689_UHD.jpg) 
+
 2023-12-02 | [Lake Minnewanka, Alberta, Canada (© Ken Phung/500px/Getty Images)](https://global.bing.com/th?id=OHR.MinnewankaLake_EN-CA2495233289_UHD.jpg) 
 
 2023-12-01 | [The Storr, a rock outcrop on the Isle of Skye, Scotland (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_EN-CA5599802740_UHD.jpg) 
