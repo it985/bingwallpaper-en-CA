@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-07 | [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_EN-CA4364715980_UHD.jpg) 
+
 2023-12-06 | [Neuschwanstein and Hohenschwangau Castles, Bavarian Alps, Germany (© Harald Nachtmann/Getty Images)](https://global.bing.com/th?id=OHR.AlpsCastles_EN-CA3984381282_UHD.jpg) 
 
 2023-12-05 | [A mother cheetah and her cubs in the Masai Mara National Reserve, Kenya (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_EN-CA9596172993_UHD.jpg) 
