@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-09 | [La Rocque Harbour, St. Clement, Island of Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_EN-CA2533906685_UHD.jpg) 
+
 2023-12-08 | [A foggy morning at Verdon Gorge in the Alpes-de-Haute-Provence of France (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_EN-CA6319133080_UHD.jpg) 
 
 2023-12-07 | [The Globe of Science and Innovation building, Meyrin, Switzerland (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_EN-CA4364715980_UHD.jpg) 
