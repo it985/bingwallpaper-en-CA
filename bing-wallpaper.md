@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-16 | [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://global.bing.com/th?id=OHR.SantaPark_EN-CA4150572624_UHD.jpg) 
+
 2023-12-15 | [Boreal owl, Saskatchewan, Canada (© Nick Saunders/Minden Pictures)](https://global.bing.com/th?id=OHR.BorealOwl_EN-CA5986329708_UHD.jpg) 
 
 2023-12-14 | [Traditional fishing cabins, Svolvaer, Lofoten Islands, Norway (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_EN-CA0505973846_UHD.jpg) 
