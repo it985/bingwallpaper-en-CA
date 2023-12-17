@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-18 | [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_EN-CA5729740430_UHD.jpg) 
+
 2023-12-17 | [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_EN-CA4794374028_UHD.jpg) 
 
 2023-12-16 | [SantaPark in Rovaniemi, Lapland, Finland (© lukutin77/Getty Images)](https://global.bing.com/th?id=OHR.SantaPark_EN-CA4150572624_UHD.jpg) 
