@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-19 | [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_EN-CA8234671064_UHD.jpg) 
+
 2023-12-18 | [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_EN-CA5729740430_UHD.jpg) 
 
 2023-12-17 | [Guild houses of Grand-Place, Brussels, Belgium (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_EN-CA4794374028_UHD.jpg) 
