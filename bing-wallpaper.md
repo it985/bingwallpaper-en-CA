@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-20 | [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_EN-CA8636776898_UHD.jpg) 
+
 2023-12-19 | [Capitol Reef National Park, Utah (© Jeff Clay/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CapitolReefSnow_EN-CA8234671064_UHD.jpg) 
 
 2023-12-18 | [Bohemian waxwings perched on a branch, Canada (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_EN-CA5729740430_UHD.jpg) 
