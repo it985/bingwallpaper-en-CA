@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [Castlerigg Stone Circle near Keswick, Lake District National Park, Cumbria, United Kingdom (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_EN-CA9940011631_UHD.jpg) 
+
 2023-12-21 | [Village in Val Gardena at Christmas, Dolomites, Italy (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_EN-CA9038547102_UHD.jpg) 
 
 2023-12-20 | [Christmas tree in Castle Square, Old Town, Warsaw, Poland (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_EN-CA8636776898_UHD.jpg) 
