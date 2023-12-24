@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-25 | [Town Hall Square, Tartu, Estonia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.EstoniaXmasEve_EN-CA2639551026_UHD.jpg) 
+
 2023-12-24 | [Chinstrap penguins, South Sandwich Islands, South Atlantic Ocean (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_EN-CA2075026889_UHD.jpg) 
 
 2023-12-23 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_EN-CA1534198321_UHD.jpg) 
