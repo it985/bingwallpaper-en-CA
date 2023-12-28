@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-29 | [Humpback whale, Disko Bay, Greenland (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_EN-CA8706019079_UHD.jpg) 
+
 2023-12-28 | [Kirkjufell, Snæfellsnes peninsula, Iceland (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_EN-CA8070468139_UHD.jpg) 
 
 2023-12-27 | [Christmas lights on trees at dusk, Vancouver, Canada (© Stuart Dee/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDayCA_EN-CA7491018775_UHD.jpg) 
