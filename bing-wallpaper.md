@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-02 | [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_EN-CA4697579541_UHD.jpg) 
+
 2024-01-01 | [Fireworks over Phra Nakhon Khiri, Phetchaburi, Thailand (© noomcpk/Shutterstock)](https://global.bing.com/th?id=OHR.ThailandNewYears_EN-CA2541480849_UHD.jpg) 
 
 2023-12-31 | [Daiichi Tadami River Bridge, Fukushima prefecture, Japan (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_EN-CA2053501506_UHD.jpg) 
