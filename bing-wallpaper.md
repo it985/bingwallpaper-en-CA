@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-04 | [Bodleian Library, University of Oxford, England (© Andrew Holt/Getty Images)](https://global.bing.com/th?id=OHR.BodleianCeiling_EN-CA4231401380_UHD.jpg) 
+
 2024-01-03 | [Prayer flags in Phobjikha Valley, Bhutan (© John Warburton-Lee/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.BhutanSolstice_EN-CA3332703739_UHD.jpg) 
 
 2024-01-02 | [Red fox sleeping in the snow, Abruzzo, Italy (© marco vancini/500px/Getty Images)](https://global.bing.com/th?id=OHR.SleepingFox_EN-CA4697579541_UHD.jpg) 
