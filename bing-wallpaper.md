@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-08 | [Karlu Karlu/Devils Marbles Conservation Reserve, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_EN-CA8561451534_UHD.jpg) 
+
 2024-01-07 | [Vermilion Lakes, Banff, Canada (© Carlos Fernandez/Moment/Getty Images)](https://global.bing.com/th?id=OHR.VermilionLakesCA_EN-CA5785272161_UHD.jpg) 
 
 2024-01-06 | [International Ice and Snow Festival, Harbin, China (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_EN-CA4930649632_UHD.jpg) 
