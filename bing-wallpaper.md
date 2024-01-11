@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-12 | [Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_EN-CA9725800228_UHD.jpg) 
+
 2024-01-11 | [Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_EN-CA9415025805_UHD.jpg) 
 
 2024-01-10 | [Hot air balloons over the Rio Grande, Albuquerque, New Mexico (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_EN-CA0285762156_UHD.jpg) 
