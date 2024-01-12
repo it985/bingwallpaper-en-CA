@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-13 | [Bukhansan National Park, South Korea (© TRAVEL TAKE PHOTOS/Shutterstock)](https://global.bing.com/th?id=OHR.BukhansanSeoul_EN-CA7594639923_UHD.jpg) 
+
 2024-01-12 | [Eurasian lynx in the snow (© Jan Stria/Shutterstock)](https://global.bing.com/th?id=OHR.LynxSnow_EN-CA9725800228_UHD.jpg) 
 
 2024-01-11 | [Stairs on the shoreline at Mylopotamos, Thessaly, Greece (© Orestis Zoumpos/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.MilopotamosStairs_EN-CA9415025805_UHD.jpg) 
