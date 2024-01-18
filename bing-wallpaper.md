@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-19 | [Pont Alexandre III at twilight, Paris, France (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_EN-CA5986391133_UHD.jpg) 
+
 2024-01-18 | [Sleeping wolf in Bavarian Forest National Park, Germany (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.SleepyWolf_EN-CA6144184677_UHD.jpg) 
 
 2024-01-17 | [Lake Louise, Banff National Park, Alberta, Canada (© Mr. Simon Paul/Shutterstock)](https://global.bing.com/th?id=OHR.LakeLouise_EN-CA6262650023_UHD.jpg) 
