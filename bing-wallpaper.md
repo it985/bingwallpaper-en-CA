@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-23 | [Winter sunrise, Walton Lighthouse, Santa Cruz, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SantaCruzSunrise_EN-CA9651520074_UHD.jpg) 
+
 2024-01-22 | [Eurasian red squirrel, Netherlands (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_EN-CA8803161648_UHD.jpg) 
 
 2024-01-21 | [Macaroni penguins, Drake Passage, Chile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_EN-CA8464340368_UHD.jpg) 
