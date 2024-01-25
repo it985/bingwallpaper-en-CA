@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-26 | [A snowy owl on the icy field, Quebec City, Canada (© Marco Pozzi Photographer/Moment/Getty Images)](https://global.bing.com/th?id=OHR.SnowyOwlQuebec_EN-CA1326772856_UHD.jpg) 
+
 2024-01-25 | [Diamond Beach, Iceland (© Rachid Dahnoun/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.IcelandBeach_EN-CA0939804104_UHD.jpg) 
 
 2024-01-24 | [Atolls in Indian Ocean, Maldives (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.MaldivesAtolls_EN-CA0649098426_UHD.jpg) 
