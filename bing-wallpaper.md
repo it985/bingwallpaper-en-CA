@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-29 | [Channel Country, Outback Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://global.bing.com/th?id=OHR.ChannelOutback_EN-CA2352335616_UHD.jpg) 
+
 2024-01-28 | [Ice Palace at the St. Paul Winter Carnival, Minnesota (© Joe Mamer Photography/Alamy)](https://global.bing.com/th?id=OHR.WinterCarnival_EN-CA1750388118_UHD.jpg) 
 
 2024-01-27 | [Northern hawk-owl (© Remo Savisaar/Alamy)](https://global.bing.com/th?id=OHR.HawkOwl_EN-CA9957367188_UHD.jpg) 
