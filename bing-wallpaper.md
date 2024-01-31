@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-01 | [Burchell's zebra mother and foal, Rietvlei Nature Reserve, South Africa (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraMother_EN-CA5020659638_UHD.jpg) 
+
 2024-01-31 | [Aýna, Sierra del Segura, Albacete, Spain (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.AlbaceteSpain_EN-CA6620755478_UHD.jpg) 
 
 2024-01-30 | [Gollinger Waterfalls, Tennengau, Salzburg, Austria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_EN-CA5492770721_UHD.jpg) 
