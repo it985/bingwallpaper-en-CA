@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-10 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://global.bing.com/th?id=OHR.PegadungRocks_EN-CA1944880628_UHD.jpg) 
+
 2024-02-09 | [Mount Hood, Oregon (© Inigo Cia/Getty Images)](https://global.bing.com/th?id=OHR.MtHoodOregon_EN-CA4458868395_UHD.jpg) 
 
 2024-02-08 | [St. James Tidal Pool, Cape Town, South Africa (© AmazingAerialAgency/Adobe)](https://global.bing.com/th?id=OHR.StJamesPool_EN-CA4005235851_UHD.jpg) 
