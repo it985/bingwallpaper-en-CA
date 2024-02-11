@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-12 | [Chora, Folegandros Island, Cyclades, Greece (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.FolegandrosGreece_EN-CA9478453572_UHD.jpg) 
+
 2024-02-11 | [Chinese New Year Parade, Vancouver, British Columbia, Canada (© Michael Wheatley/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ChineseNYParade_EN-CA8193422091_UHD.jpg) 
 
 2024-02-10 | [Pegadung Rock, Lampung, Sumatra, Indonesia (© CK NG/500px/Getty Images)](https://global.bing.com/th?id=OHR.PegadungRocks_EN-CA1944880628_UHD.jpg) 
