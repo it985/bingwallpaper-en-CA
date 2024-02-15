@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Hippopotamus mother and calf, South Luangwa National Park, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_EN-CA3448449315_UHD.jpg) 
+
 2024-02-15 | [Red-crowned crane bowing to his mate in Hokkaido, Japan (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_EN-CA2979553656_UHD.jpg) 
 
 2024-02-14 | [Mardi Gras beads in the Marigny, New Orleans (© Erik Pronske Photography/Getty Images)](https://global.bing.com/th?id=OHR.MarignyBeads_EN-CA1889405550_UHD.jpg) 
