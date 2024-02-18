@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-19 | [Sperm whale pod surfacing, Dominica (© Franco Banfi/Minden Pictures)](https://global.bing.com/th?id=OHR.DominicaWhales_EN-CA6901378196_UHD.jpg) 
+
 2024-02-18 | [Sassnitz lighthouse on Rügen island, Germany (© Christian Back/eStock)](https://global.bing.com/th?id=OHR.HalbinselJasmund_EN-CA5327600383_UHD.jpg) 
 
 2024-02-17 | [Female pyrrhuloxia perched on cactus plant, Texas (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_EN-CA9775079263_UHD.jpg) 
