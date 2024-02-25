@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-26 | [Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_EN-CA3290198869_UHD.jpg) 
+
 2024-02-25 | [Almond trees in full bloom, California (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AlmondBloom_EN-CA1288392326_UHD.jpg) 
 
 2024-02-24 | [Haghartsin Monastery, Dilijan National Park, Armenia (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_EN-CA4755376213_UHD.jpg) 
