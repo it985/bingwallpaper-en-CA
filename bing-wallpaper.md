@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-28 | [Polar bear cubs playing, Kaktovik, Alaska (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.PolarBearCubs_EN-CA5276612628_UHD.jpg) 
+
 2024-02-27 | [Grand Canyon National Park, Arizona (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_EN-CA4125464970_UHD.jpg) 
 
 2024-02-26 | [Mist in the Cowichan Valley on Vancouver Island, British Columbia, Canada (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_EN-CA3290198869_UHD.jpg) 
