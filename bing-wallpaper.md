@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-02 | [Sunset colours over the icy Wheaton River, Yukon, Canada (© Robert Postma/All Canada Photos/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.WheatonRiverYukon_EN-CA9040567643_UHD.jpg) 
+
 2024-03-01 | [Eurasian red squirrel (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_EN-CA7454002692_UHD.jpg) 
 
 2024-02-29 | [Bamburgh Castle, Northumberland, England (© Blackbeck/Getty Images)](https://global.bing.com/th?id=OHR.BamburghCastleUK_EN-CA8209720771_UHD.jpg) 
