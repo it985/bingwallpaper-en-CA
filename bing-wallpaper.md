@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-12 | [A koala sleeping in a eucalyptus tree, Australia (© Anton Rogozin/Getty Images)](https://global.bing.com/th?id=OHR.SleepyKoala_EN-CA5375269205_UHD.jpg) 
+
 2024-03-11 | [San Jacinto Building's mechanical clock, Beaumont, Texas (© Richard T. Nowitz/Getty Images)](https://global.bing.com/th?id=OHR.BeaumontClock_EN-CA5068787864_UHD.jpg) 
 
 2024-03-10 | [Bisti/De-Na-Zin Wilderness Area, New Mexico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_EN-CA4421892310_UHD.jpg) 
