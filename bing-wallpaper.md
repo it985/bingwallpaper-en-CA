@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-17 | [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_EN-CA7469688452_UHD.jpg) 
+
 2024-03-16 | [Colourful tulip fields in Fraser Valley, Abbotsford, BC, Canada (© LeonU/Getty Images)](https://global.bing.com/th?id=OHR.TulipAbbotsford_EN-CA8463194179_UHD.jpg) 
 
 2024-03-15 | [Wat Phra Ngam, Ayutthaya Historical Park, Thailand (© boonchai wedmakawand/Alamy)](https://global.bing.com/th?id=OHR.AyutthayaTree_EN-CA7341157054_UHD.jpg) 
