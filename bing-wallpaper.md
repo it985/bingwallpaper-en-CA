@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-19 | [Elephant Rock, Al-Ula, Saudi Arabia (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_EN-CA1969254350_UHD.jpg) 
+
 2024-03-18 | [St. Finian's Bay, County Kerry, Ireland (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.StFiniansBay_EN-CA8128380530_UHD.jpg) 
 
 2024-03-17 | [Giant panda eating bamboo, Chengdu, China (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.BambooPanda_EN-CA7469688452_UHD.jpg) 
