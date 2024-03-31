@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-01 | [Easter eggs painted by Tünde Csuhaj, Szekszárd, Hungary (© ATTILA KISBENEDEK/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HungarianEggs_EN-CA7704543588_UHD.jpg) 
+
 2024-03-31 | [Brown-throated three-toed sloth sleeping in cecropia tree, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_EN-CA8767906433_UHD.jpg) 
 
 2024-03-30 | [South Stack Lighthouse at sunset, Holyhead, Wales, UK (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_EN-CA7056549595_UHD.jpg) 
