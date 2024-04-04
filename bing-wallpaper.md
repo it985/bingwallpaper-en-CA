@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [Red lechwe herd crossing marshy plain of Okavango Delta, Botswana (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.AntelopeBotswana_EN-CA1764175316_UHD.jpg) 
+
 2024-04-04 | [Broken Group Islands, Pacific Rim National Park Reserve, Vancouver Island, British Columbia (© Ron Watts/Design Pics/Getty Images)](https://global.bing.com/th?id=OHR.PacificRimNationalPark_EN-CA1275623465_UHD.jpg) 
 
 2024-04-03 | [Beech trees and wild anemones, Jutland, Denmark (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_EN-CA0874464539_UHD.jpg) 
