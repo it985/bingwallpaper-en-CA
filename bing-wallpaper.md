@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Total solar eclipse photographed from Madras, Oregon on August 21, 2017 (© NASA/Aubrey Gemignani)](https://global.bing.com/th?id=OHR.SolarEclipseOregon_EN-CA9605067136_UHD.jpg) 
+
 2024-04-08 | [North American beaver in a pond near Wonder Lake, Denali National Park, Alaska (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.BeaverDenali_EN-CA6851108390_UHD.jpg) 
 
 2024-04-07 | [Himeji Castle, Himeji, Hyōgo Prefecture, Japan (© Julian Elliott Photography/Getty Images)](https://global.bing.com/th?id=OHR.JapanHimeji_EN-CA9913265473_UHD.jpg) 
