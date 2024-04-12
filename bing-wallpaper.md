@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-13 | [Evening light over North Window with Turret Arch in the distance, Arches National Park, Utah (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_EN-CA3137398130_UHD.jpg) 
+
 2024-04-12 | [Aerial view of Churun-Meru (Dragon) waterfall, Venezuela (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DragonWaterfall_EN-CA2526860272_UHD.jpg) 
 
 2024-04-11 | [Burrowing owl chicks near a burrow, Wyoming (© Danita Delimont/Getty Images)](https://global.bing.com/th?id=OHR.OwlSiblings_EN-CA1132160372_UHD.jpg) 
