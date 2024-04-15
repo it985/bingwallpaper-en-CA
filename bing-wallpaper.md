@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-16 | [The RedBall Project art installation, Centraal Station, Antwerp, Belgium (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_EN-CA5507673869_UHD.jpg) 
+
 2024-04-15 | [Sunset on Bowling Ball Beach, Mendocino County, California (© Melo Qiao/Getty Images)](https://global.bing.com/th?id=OHR.BowlingBallCali_EN-CA4907440607_UHD.jpg) 
 
 2024-04-14 | [Cherry blossoms in Queen Elizabeth Park, Vancouver (© Yun Han Xu/Moment Open/Getty Images)](https://global.bing.com/th?id=OHR.SakuraDaysJapanFair_EN-CA3687472576_UHD.jpg) 
