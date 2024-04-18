@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-19 | [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://global.bing.com/th?id=OHR.AvilaSpain_EN-CA7098844997_UHD.jpg) 
+
 2024-04-18 | [American black bear cub in spring, Shenandoah National Park, Virginia (© Scott Suriano/Getty Images)](https://global.bing.com/th?id=OHR.SpringCub_EN-CA6557081564_UHD.jpg) 
 
 2024-04-17 | [Union Square in lower Manhattan at twilight, New York (© Sean Pavone/Getty Images)](https://global.bing.com/th?id=OHR.UnionSquareNYC_EN-CA5985691917_UHD.jpg) 
