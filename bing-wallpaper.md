@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-21 | [Grand Prismatic Spring at sunrise, Yellowstone National Park, Wyoming (© XIN WANG/Getty Images)](https://global.bing.com/th?id=OHR.YellowstoneGeyser_EN-CA9905041975_UHD.jpg) 
+
 2024-04-20 | [The Ring of Brodgar, Orkney, Scotland (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_EN-CA6136487173_UHD.jpg) 
 
 2024-04-19 | [Medieval city walls, Ávila, Spain (© Alberto Loyo/Getty Images)](https://global.bing.com/th?id=OHR.AvilaSpain_EN-CA7098844997_UHD.jpg) 
