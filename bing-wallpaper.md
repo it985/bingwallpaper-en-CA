@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-26 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_EN-CA6223375339_UHD.jpg) 
+
 2024-04-25 | [White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_EN-CA6497010654_UHD.jpg) 
 
 2024-04-24 | [Library of Trinity College Dublin, Ireland (© Vincent Isore/Getty Images)](https://global.bing.com/th?id=OHR.TrinityDublin_EN-CA0477262723_UHD.jpg) 
