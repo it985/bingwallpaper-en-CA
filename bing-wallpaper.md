@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-27 | [Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.ValDiFunes_EN-CA4828083931_UHD.jpg) 
+
 2024-04-26 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_EN-CA6223375339_UHD.jpg) 
 
 2024-04-25 | [White trillium blooming in Ontario, Canada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_EN-CA6497010654_UHD.jpg) 
