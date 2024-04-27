@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-28 | [Leucistic Anna's hummingbird in the Australia Garden, UCSC Arboretum, Santa Cruz, California (© yhelfman/Getty Images)](https://global.bing.com/th?id=OHR.LeucisticHummingbird_EN-CA9003598564_UHD.jpg) 
+
 2024-04-27 | [Villnöß with the Dolomites in the background, South Tyrol, Italy (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.ValDiFunes_EN-CA4828083931_UHD.jpg) 
 
 2024-04-26 | [Adélie penguins on an iceberg, Antarctica (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.PenguinDirections_EN-CA6223375339_UHD.jpg) 
