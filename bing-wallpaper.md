@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-01 | [Cheetah in morning rain, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_EN-CA1487637998_UHD.jpg) 
+
 2024-04-30 | [Fujian Tulou complex of historical and cultural heritage buildings in Fujian province, China (© Hongjie Han/Getty Images)](https://global.bing.com/th?id=OHR.TulouFujian_EN-CA1163338390_UHD.jpg) 
 
 2024-04-29 | [El Capitan at sunrise in Guadalupe Mountains National Park, Texas (© Adam Mowery/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GuadalupeTexas_EN-CA8167364190_UHD.jpg) 
