@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-06 | [Kalaloch Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)](https://global.bing.com/th?id=OHR.KalalochTree_EN-CA6384901158_UHD.jpg) 
+
 2024-05-05 | [The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_EN-CA6236895858_UHD.jpg) 
 
 2024-05-04 | [Brittlebushes blooming in springtime, Sonoran Desert, Arizona (© Charles Harker/Getty Images)](https://global.bing.com/th?id=OHR.SonoranSpring_EN-CA6106582512_UHD.jpg) 
