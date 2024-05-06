@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [The Roaches, Peak District, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.TheRoachesPeakDistrict_EN-CA6826651517_UHD.jpg) 
+
 2024-05-06 | [Kalaloch Tree of Life, Kalaloch Beach, Olympic National Park, Washington (© Abbie Warnock-Matthews/Shutterstock)](https://global.bing.com/th?id=OHR.KalalochTree_EN-CA6384901158_UHD.jpg) 
 
 2024-05-05 | [The ruins of an ancient monastery on the island of Skellig Michael, Ireland (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_EN-CA6236895858_UHD.jpg) 
