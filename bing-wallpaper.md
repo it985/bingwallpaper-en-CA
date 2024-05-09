@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-10 | [Misool, Raja Ampat Islands, Indonesia (© Giordano Cipriani/Getty Images)](https://global.bing.com/th?id=OHR.MisoolRajaAmpat_EN-CA9137654877_UHD.jpg) 
+
 2024-05-09 | [View of Château d'If in the port of Marseille, France (© Sergii Figurnyi/Alamy)](https://global.bing.com/th?id=OHR.PortMarseille_EN-CA7163664407_UHD.jpg) 
 
 2024-05-08 | [A duckling swimming in a water meadow, Suffolk, England (© Nick Hurst/Getty Images)](https://global.bing.com/th?id=OHR.LittleDuckling_EN-CA7068019573_UHD.jpg) 
