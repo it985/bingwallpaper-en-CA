@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-13 | [Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://global.bing.com/th?id=OHR.GuanacoMother_EN-CA8019143520_UHD.jpg) 
+
 2024-05-12 | [An indigo bunting perched on a branch, Texas (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.TexasIndigoBunting_EN-CA7787624714_UHD.jpg) 
 
 2024-05-11 | [Tulips in front of the Parliament Buildings during the Tulip Festival in Ottawa (© Danielle Donders/Moment/Getty Images)](https://global.bing.com/th?id=OHR.OttawaTulipFest_EN-CA7422962019_UHD.jpg) 
