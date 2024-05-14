@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-15 | [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://global.bing.com/th?id=OHR.CarlsbadNP_EN-CA8275462629_UHD.jpg) 
+
 2024-05-14 | [Fish River Canyon, Namibia (© R. M. Nunes/Getty Images)](https://global.bing.com/th?id=OHR.NamibiaCanyon_EN-CA8189857469_UHD.jpg) 
 
 2024-05-13 | [Guanaco female and newborn baby in grassland, La Pampa Province, Argentina (© Gabriel Rojo/Minden Pictures)](https://global.bing.com/th?id=OHR.GuanacoMother_EN-CA8019143520_UHD.jpg) 
