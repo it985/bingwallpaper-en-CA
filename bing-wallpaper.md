@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-17 | ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_EN-CA8566531785_UHD.jpg) 
+
 2024-05-16 | [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_EN-CA8486097428_UHD.jpg) 
 
 2024-05-15 | [Walkway leading into the Big Room, Carlsbad Caverns, New Mexico (© Doug Meek/Getty Images)](https://global.bing.com/th?id=OHR.CarlsbadNP_EN-CA8275462629_UHD.jpg) 
