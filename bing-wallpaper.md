@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-18 | [A family of African elephants in Tarangire National Park, Tanzania (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)](https://global.bing.com/th?id=OHR.TarangireElephants_EN-CA3710985340_UHD.jpg) 
+
 2024-05-17 | ['Feelings are Facts,' by artist Olafur Eliasson and architect Ma Yansong, Beijing, China (© Feng Li/Getty Images News)](https://global.bing.com/th?id=OHR.DayOfLight_EN-CA8566531785_UHD.jpg) 
 
 2024-05-16 | [The Blue City of Jodhpur, India (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.BlueCityIndia_EN-CA8486097428_UHD.jpg) 
