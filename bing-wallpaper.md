@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-21 | [Parliament Hill in Ottawa, Ontario, Canada (© f11photo/iStock/Getty Images)](https://global.bing.com/th?id=OHR.OttawaParliamentHill_EN-CA0974893499_UHD.jpg) 
+
 2024-05-20 | [Village of Vernazza, Cinque Terre, Liguria, Italy (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.VernazzaItaly_EN-CA4571085041_UHD.jpg) 
 
 2024-05-19 | [Blue whale skeleton named Hope, Natural History Museum, London, England (© Bailey-Cooper Photography/Alamy)](https://global.bing.com/th?id=OHR.MuseumWhale_EN-CA4260843358_UHD.jpg) 
