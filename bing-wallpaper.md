@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-30 | [Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://global.bing.com/th?id=OHR.MullOtter_EN-CA6618769900_UHD.jpg) 
+
 2024-05-29 | [Roussanou Monastery, Meteora, Thessaly, Greece (© Marius Roman/Getty Images)](https://global.bing.com/th?id=OHR.MeteoraMonastery_EN-CA9255017946_UHD.jpg) 
 
 2024-05-28 | [Mingan Archipelago National Park Reserve, Quebec, Canada (© Instants/E+/Getty Images)](https://global.bing.com/th?id=OHR.MinganArchipelago_EN-CA5872186861_UHD.jpg) 
