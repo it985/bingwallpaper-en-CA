@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-01 | [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_EN-CA8134519875_UHD.jpg) 
+
 2024-05-31 | [A stand of slash pines and sawgrass prairie, Everglades National Park, Florida (© Jonathan Gewirtz/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.Everglades90th_EN-CA7240904105_UHD.jpg) 
 
 2024-05-30 | [Adolescent European otters, Loch Spelve, Isle of Mull, Scotland (© Neil Henderson/Alamy)](https://global.bing.com/th?id=OHR.MullOtter_EN-CA6618769900_UHD.jpg) 
