@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-03 | [Female Anna's hummingbird, Canada (© Devonyu/iStock/Getty Images)](https://global.bing.com/th?id=OHR.Annahummingbird_EN-CA0660927808_UHD.jpg) 
+
 2024-06-02 | [San Francisco City Hall lit up in rainbow lights for Pride, California (© Josh Edelson/AFP via Getty Images)](https://global.bing.com/th?id=OHR.PrideMonthSF_EN-CA8827257205_UHD.jpg) 
 
 2024-06-01 | [Gunnerside, Swaledale, Yorkshire Dales National Park, England (© Derek Croucher/Alamy)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_EN-CA8134519875_UHD.jpg) 
