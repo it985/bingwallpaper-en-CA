@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-06 | [Masoala National Park in Madagascar (© Dennis van de Water/Shutterstock)](https://global.bing.com/th?id=OHR.MadagascarRiver_EN-CA5413298689_UHD.jpg) 
+
 2024-06-05 | [Chestnut-headed bee-eaters, Bardia National Park, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_EN-CA4730115773_UHD.jpg) 
 
 2024-06-04 | [Bicycles in Copenhagen, Denmark (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_EN-CA1742529177_UHD.jpg) 
