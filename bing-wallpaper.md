@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-14 | [Mosaic façade in Registan Square, Samarkand, Uzbekistan (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_EN-CA2957046494_UHD.jpg) 
+
 2024-06-13 | [Milky Way over Big Bend National Park, Texas (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_EN-CA2391615132_UHD.jpg) 
 
 2024-06-12 | [Southern gemsbok in the savanna, Botswana (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GemsbokBotswana_EN-CA0854561262_UHD.jpg) 
