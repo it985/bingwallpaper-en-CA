@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-17 | [Red fox father and kit, Washington (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFoxDad_EN-CA5585165755_UHD.jpg) 
+
 2024-06-16 | [Surfer riding a wave in Nazaré, Portugal (© Rui Caria/Getty Images)](https://global.bing.com/th?id=OHR.NazareWave_EN-CA5439968025_UHD.jpg) 
 
 2024-06-15 | [Peggy's Cove Lighthouse, Nova Scotia, Canada (© Pugalenthi/Getty Images)](https://global.bing.com/th?id=OHR.PeggysCove_EN-CA5369786988_UHD.jpg) 
