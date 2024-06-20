@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-21 | [Kokino, an ancient megalithic observatory, North Macedonia (© stoimilov/Shutterstock)](https://global.bing.com/th?id=OHR.KokinoMacedonia_EN-CA8649662259_UHD.jpg) 
+
 2024-06-20 | [Reticulated giraffe mother greeting calf, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://global.bing.com/th?id=OHR.LewaGiraffe_EN-CA8570636554_UHD.jpg) 
 
 2024-06-19 | [Lupine fields and church at sunrise, Snæfellsnes Peninsula, Iceland (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_EN-CA8487496970_UHD.jpg) 
