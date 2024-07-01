@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-02 | [Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)](https://global.bing.com/th?id=OHR.CanadaDayOttawa_EN-CA8916971167_UHD.jpg) 
+
 2024-07-01 | [Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_EN-CA8434577809_UHD.jpg) 
 
 2024-06-30 | [Cyclists in the 2013 Tour de France, Corsica, France (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TourCorsica_EN-CA6661370949_UHD.jpg) 
