@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_EN-CA9389971381_UHD.jpg) 
+
 2024-07-02 | [Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)](https://global.bing.com/th?id=OHR.CanadaDayOttawa_EN-CA8916971167_UHD.jpg) 
 
 2024-07-01 | [Stone carving at a temple in Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_EN-CA8434577809_UHD.jpg) 
