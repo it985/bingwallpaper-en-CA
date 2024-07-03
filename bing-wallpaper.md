@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-04 | [Meerkat family (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_EN-CA9684864184_UHD.jpg) 
+
 2024-07-03 | [Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_EN-CA9389971381_UHD.jpg) 
 
 2024-07-02 | [Canada Day firework show behind the National Gallery of Canada, Ottawa (© gqxue/iStock Editorial/Gettty Images)](https://global.bing.com/th?id=OHR.CanadaDayOttawa_EN-CA8916971167_UHD.jpg) 
