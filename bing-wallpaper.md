@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-05 | [Fisgard Lighthouse, Esquimalt Harbor, Colwood, British Columbia, Canada (© davemantel/Getty Images)](https://global.bing.com/th?id=OHR.FisgardLighthouse_EN-CA1018639901_UHD.jpg) 
+
 2024-07-04 | [Meerkat family (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_EN-CA9684864184_UHD.jpg) 
 
 2024-07-03 | [Italica, an old Roman city in Santiponce, Sevilla, Andalusia, Spain (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_EN-CA9389971381_UHD.jpg) 
