@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)](https://global.bing.com/th?id=OHR.SestriLevante_EN-CA8470730847_UHD.jpg) 
+
 2024-07-14 | [Fairy chimneys and cave dwellings in Cappadocia, Türkiye (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_EN-CA1807054291_UHD.jpg) 
 
 2024-07-13 | [Wildflowers in Mount Rainier National Park, Washington (© RomanKhomlyak/Getty Images)](https://global.bing.com/th?id=OHR.RainierWildflowers_EN-CA0241221642_UHD.jpg) 
