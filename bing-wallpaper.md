@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-17 | [Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)](https://global.bing.com/th?id=OHR.DinosaurProvPark_EN-CA7737524155_UHD.jpg) 
+
 2024-07-16 | [Tateishi Park, Kanagawa Prefecture, Japan (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_EN-CA6542034123_UHD.jpg) 
 
 2024-07-15 | [Baia del Silenzio in Sestri Levante, Liguria, Italy (© StevanZZ/Getty Images)](https://global.bing.com/th?id=OHR.SestriLevante_EN-CA8470730847_UHD.jpg) 
