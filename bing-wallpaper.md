@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-19 | [Coral reef in the Indian Ocean, Mayotte, France (© Gabriel Barathieu/Minden Pictures)](https://global.bing.com/th?id=OHR.MayotteCoral_EN-CA5144997966_UHD.jpg) 
+
 2024-07-18 | [Medieval city of Rothenburg ob der Tauber, Germany (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_EN-CA4728212344_UHD.jpg) 
 
 2024-07-17 | [Summer Milky Way over the badlands formations at Dinosaur Provincial Park, Alberta, Canada (© Alan Dyer/Stocktrek Images/Getty Images)](https://global.bing.com/th?id=OHR.DinosaurProvPark_EN-CA7737524155_UHD.jpg) 
