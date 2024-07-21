@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-22 | [Wooden fishing boats at Kendwa village, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.ZanzibarBoats_EN-CA8357127050_UHD.jpg) 
+
 2024-07-21 | [The moon (© Victor Blum/Getty Images)](https://global.bing.com/th?id=OHR.MineralMoon_EN-CA8937891241_UHD.jpg) 
 
 2024-07-20 | [A young jaguar on a riverbank, Pantanal, Brazil (© Tambako the Jaguar/Getty Images)](https://global.bing.com/th?id=OHR.YoungJaguar_EN-CA9065680800_UHD.jpg) 
