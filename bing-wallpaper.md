@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-25 | [Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_EN-CA1277302803_UHD.jpg) 
+
 2024-07-24 | [Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_EN-CA0696523421_UHD.jpg) 
 
 2024-07-23 | [Hammock camping on a lake in Central Florida (© Mac Stone/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HammockCamping_EN-CA7138576311_UHD.jpg) 
