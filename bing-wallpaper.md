@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-26 | [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_EN-CA9002253362_UHD.jpg) 
+
 2024-07-25 | [Flock of Swaledale sheep in North Yorkshire, England (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_EN-CA1277302803_UHD.jpg) 
 
 2024-07-24 | [Methoni Castle, Messenia, Greece (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_EN-CA0696523421_UHD.jpg) 
