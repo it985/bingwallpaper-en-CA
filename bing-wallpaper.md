@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-28 | [Vineyards in the Moselle Valley, Rhineland-Palatinate, Germany (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.RhinelandVineyards_EN-CA9625336200_UHD.jpg) 
+
 2024-07-27 | [Pont Neuf over the Seine, Paris, France (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.PontNeuf_EN-CA9337401252_UHD.jpg) 
 
 2024-07-26 | [Forest path in Great Smoky Mountains National Park, Tennessee (© putmanphoto/Getty Images)](https://global.bing.com/th?id=OHR.SmokyMountainTrail_EN-CA9002253362_UHD.jpg) 
