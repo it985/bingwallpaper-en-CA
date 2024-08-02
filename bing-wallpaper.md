@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-03 | [A family of Canadian geese swimming in a lake in Banff National Park, Alberta (© Chase Dekker Wild-Life Images/Moment/Getty Images)](https://global.bing.com/th?id=OHR.GeesefamilyBanff_EN-CA8574111296_UHD.jpg) 
+
 2024-08-02 | [Floating market, Kaptai Lake, Rangamati, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.KaptaiLake_EN-CA6019136030_UHD.jpg) 
 
 2024-08-01 | [Hoodoos, Sunset Point, Bryce Canyon National Park, Utah (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.HoodoosBryce_EN-CA5127000421_UHD.jpg) 
