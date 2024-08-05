@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-06 | [Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_EN-CA7120535968_UHD.jpg) 
+
 2024-08-05 | [Impala and red-billed oxpecker, South Africa (© Matrishva Vyas/Getty Images)](https://global.bing.com/th?id=OHR.ImpalaOxpecker_EN-CA7040522932_UHD.jpg) 
 
 2024-08-04 | [Three Natural Bridges, Wulong Karst National Geology Park, China (© Pav-Pro Photography Ltd/Shutterstock)](https://global.bing.com/th?id=OHR.WulongKarst_EN-CA6720061040_UHD.jpg) 
