@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-08 | [St. Joseph North Pier Inner and Outer Lights, Michigan (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_EN-CA1739744082_UHD.jpg) 
+
 2024-08-07 | [Molokini, Maui, Hawaii (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_EN-CA7505567262_UHD.jpg) 
 
 2024-08-06 | [Lavender field, Hertfordshire, England (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_EN-CA7120535968_UHD.jpg) 
