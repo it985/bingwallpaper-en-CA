@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-18 | [Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-CA6912914796_UHD.jpg) 
+
 2024-08-17 | [Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CNE2024_EN-CA8242328301_UHD.jpg) 
 
 2024-08-16 | [Hang Sơn Đoòng cave, Phong Nha-Kẻ Bàng National Park, Vietnam (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_EN-CA7947699816_UHD.jpg) 
