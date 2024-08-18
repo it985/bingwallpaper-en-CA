@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-19 | [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_EN-CA6417912965_UHD.jpg) 
+
 2024-08-18 | [Alfanzina lighthouse, Algarve, Portugal (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_EN-CA6912914796_UHD.jpg) 
 
 2024-08-17 | [Canadian International Air Show at the Canadian National Exhibition, in Toronto, Ontario (© Tony Florio/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.CNE2024_EN-CA8242328301_UHD.jpg) 
