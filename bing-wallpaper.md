@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-21 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_EN-CA1567312627_UHD.jpg) 
+
 2024-08-20 | [Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)](https://global.bing.com/th?id=OHR.TwoPuffins_EN-CA7284054519_UHD.jpg) 
 
 2024-08-19 | [Huntington Beach Pier, California, at sunset (© Stan Moniz Photography/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_EN-CA6417912965_UHD.jpg) 
