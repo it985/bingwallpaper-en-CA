@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-22 | [Nazca boobies, Wolf Island, Galápagos Islands, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.NazcaBooby_EN-CA2702315938_UHD.jpg) 
+
 2024-08-21 | [Sunrise at Grand Teton National Park, Wyoming (© Kurt Budliger/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_EN-CA1567312627_UHD.jpg) 
 
 2024-08-20 | [Two Atlantic puffins, Elliston, Newfoundland, Canada (© Daphne Roberts Photography/Getty Images)](https://global.bing.com/th?id=OHR.TwoPuffins_EN-CA7284054519_UHD.jpg) 
