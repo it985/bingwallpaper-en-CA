@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Sunrise over Swiftcurrent Lake, Glacier National Park, Montana (© Jason Savage/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SwiftcurrentLake_EN-CA7830300836_UHD.jpg) 
+
 2024-08-25 | [Katahdin Woods and Waters National Monument, Penobscot County, Maine (© Cavan Images/Alamy)](https://global.bing.com/th?id=OHR.KatahdinWoods_EN-CA4283542343_UHD.jpg) 
 
 2024-08-24 | [Prasat Phanom Rung temple ruins, Buriram province, Thailand (© Banjongseal324/Getty Images)](https://global.bing.com/th?id=OHR.PrasatPhanom_EN-CA2112837442_UHD.jpg) 
