@@ -1,5 +1,5 @@
 ## Bing Wallpaper (2024-09)
-![](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&w=1000)Today: [Rock formations and sand dunes in the Sahara, Djanet, Algeria (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-CA7037142112_UHD.jpg&w=1000)Today: [River Thames, London, England (© Puthipong Worasaran/Getty Images)](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-CA7037142112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
-|![](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-01 [download 4k](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
+|![](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-CA7037142112_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-02 [download 4k](https://cn.bing.com/th?id=OHR.ThamesLondon_EN-CA7037142112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2024-09-01 [download 4k](https://cn.bing.com/th?id=OHR.DjanetAlgeria_EN-CA7183702479_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
