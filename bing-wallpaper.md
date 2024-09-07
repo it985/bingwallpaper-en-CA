@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-08 | [Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-CA9641643755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-07 | [Ancient beech tree, Glenariff Forest Park, County Antrim, Northern Ireland (© Dawid K Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.GlenariffPark_EN-CA9582120244_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-06 | [Toronto city skyline seen from Lake Ontario, Canada (© Roberto Machado Noa/Getty Images)](https://cn.bing.com/th?id=OHR.TIFF2024_EN-CA6309124110_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
