@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-10 | [Iguazu Falls at the border of Argentina and Brazil (© AirPano LLC/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.IguazuRainbow_EN-CA9747611398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-09 | [Interior of the Stockholm Public Library, Sweden (© Andrei Hrabun/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.StockholmLibrary_EN-CA2154287662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-08 | [Anna's hummingbird, Santa Cruz, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.SantaCruzHummer_EN-CA9641643755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
