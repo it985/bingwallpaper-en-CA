@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-13 | [Dolphin pod near Réunion island, Indian Ocean, overseas department of France (© Joost van Uffelen/Shutterstock)](https://cn.bing.com/th?id=OHR.DolphinReunion_EN-CA0142031840_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-12 | [Red fox mother kissing her baby in Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.RedFoxMother_EN-CA4368684954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-11 | [Vasco da Gama Bridge, Lisbon, Portugal (© Achim Thomae/Getty Images)](https://cn.bing.com/th?id=OHR.BridgeLisbon_EN-CA9816290154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
