@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-18 | [Mid-Autumn Festival in Gardens by the Bay, Singapore (© Victor Y. Zhuo/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.MidAutumnSingapore_EN-CA0460554285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-17 | [Wallabies at sunrise, Adelaide River, Northern Territory, Australia (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.SunriseWallabies_EN-CA0408938056_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-16 | [Ouimet Canyon near Thunder Bay (© plainpicture/Design Pics/Susan Dykstra)](https://cn.bing.com/th?id=OHR.OuimetCanyon_EN-CA0342113199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
