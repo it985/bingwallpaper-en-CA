@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-21 | [Ocracoke Lighthouse on Ocracoke Island, North Carolina, USA (© Chansak Joe/Getty Images)](https://cn.bing.com/th?id=OHR.OcracokeLight_EN-CA0008554628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-20 | [Playground at the Obereversand Lighthouse in Dorum-Neufeld, Germany (© INGO WAGNER/DPA/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.PiratePlayground_EN-CA5267288064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-19 | [Gujō Hachiman Castle, Gifu Prefecture, Japan (© ta2funk ito/500px/Getty Images)](https://cn.bing.com/th?id=OHR.GujoHachiman_EN-CA0510851106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
