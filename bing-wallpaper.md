@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-09-28 | [Aerial view of the Grand Canal and the Basilica di Santa Maria della Salute, Venice, Italy (© Bachir Moukarzel/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceAerial_EN-CA1714828799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-09-27 | [Blue-throated toucanet, Los Quetzales National Park, Costa Rica (© Oscar Dominguez/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.LittleToucanet_EN-CA1208126136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-09-26 | [Giant sequoias, Sequoia National Park, California, USA (© Galyna Andrushko/Shutterstock)](https://cn.bing.com/th?id=OHR.GiantSequoias_EN-CA0725943426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
