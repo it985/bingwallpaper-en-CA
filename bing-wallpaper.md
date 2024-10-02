@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-03 | [Autumn in the Ogilvie Mountains, Yukon,Canada (© Theo Allofs/Minden Pictures)](https://cn.bing.com/th?id=OHR.YukonAutumn_EN-CA4777665764_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-02 | [Last light on Half Dome, Yosemite National Park, California, USA (© Adam Burton/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.HalfDomeYosemite_EN-CA4543823129_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-01 | [Herd of walruses in northern Spitsbergen, Svalbard archipelago, Norway (© AWL Images/DanitaDelimont)](https://cn.bing.com/th?id=OHR.WalrusNorway_EN-CA4061858184_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
