@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-07 | [Cottonwoods through an arch in Coyote Gulch, Glen Canyon Recreation Area, Utah, USA (© Stephen Matera/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CoyoteGulch_EN-CA9362587881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-06 | [African elephants in Tsavo East National Park, Kenya (© Neil Bowman/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantTeacher_EN-CA7050305105_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-05 | [Toronto Sign, Nathan Phillips Square, Canada (© Bruce Christie/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.NuitBlanche24_EN-CA8251507494_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
