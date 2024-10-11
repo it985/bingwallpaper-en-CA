@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-12 | [Cape Breton Highlands, Nova Scotia, Canada (© Cavan Images/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CelticColours_EN-CA7718811490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-11 | [Sorano, Tuscany, Italy (© Luigi Vaccarella/eStock Photo)](https://cn.bing.com/th?id=OHR.SoranoItaly_EN-CA4829518601_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-10 | [Aspens near Marble, Colorado, USA (© Jason Hatfield/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AspensColorado_EN-CA0556453730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
