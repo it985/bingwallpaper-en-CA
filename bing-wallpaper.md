@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-10-17 | [Fossils of belemnites and ammonites, Jurassic Coast, Dorset, United Kingdom (© Nature Picture Library/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FossilsDorset_EN-CA8526505485_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-10-16 | [Great wildebeest migration at Mara River, Kenya (© Ayzenstayn/Getty Images)](https://cn.bing.com/th?id=OHR.MaraMigration_EN-CA7027269476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-10-15 | [Fishing boats at Coco Beach in Goa, India (© Abhinav Sah/Shutterstock)](https://cn.bing.com/th?id=OHR.CocoBeach_EN-CA6585712044_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
