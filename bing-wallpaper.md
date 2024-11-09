@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-10 | [Milky Way, Aït Benhaddou, Morocco (© Cavan Images/Getty Images)](https://cn.bing.com/th?id=OHR.MoroccoMilkyWay_EN-CA4328551346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-09 | [Aerial view of glacial rivers in Iceland (© rybarmarekk/Shutterstock)](https://cn.bing.com/th?id=OHR.GlacialRivers_EN-CA4120798939_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-08 | [Vancouver Coastal Sea wolves in Great Bear Rainforest, British Columbia, Canada (© Nick Garbutt/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.CanadaWolves_EN-CA3643391655_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
