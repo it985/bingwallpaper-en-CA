@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-13 | [Double Arch seen through Cove Arch, Arches National Park, Utah, USA (© Jeff Foott/Minden Pictures)](https://cn.bing.com/th?id=OHR.CoveArch_EN-CA4941949574_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-12 | [Sunset at Banff National Park, Alberta, Canada (© fywPhoto 云卷云舒/Getty Images)](https://cn.bing.com/th?id=OHR.Banff24_EN-CA4781010771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-11 | [Caribbean flamingos, Yucatán Peninsula, Mexico (© Claudio Contreras/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.YucatanFlamingos_EN-CA4668702589_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
