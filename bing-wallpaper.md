@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-20 | [Tasmans Arch, Tasmania, Australia (© Gary Bell/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasmansArch_EN-CA9582409540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-19 | [Porthcawl lighthouse, South Wales, UK (© Leighton Collins/Alamy)](https://cn.bing.com/th?id=OHR.PorthcawlLighthouse_EN-CA7342147718_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-18 | [Red deer stag in Caledonian Forest, Glen Affric, Scottish Highlands (© Terry Whittaker/Alamy)](https://cn.bing.com/th?id=OHR.RedStag_EN-CA7140488734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
