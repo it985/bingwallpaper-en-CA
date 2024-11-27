@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-11-28 | [Giant's Tomb in autumn, Bouillon, Belgium (© David Briard/Getty)](https://cn.bing.com/th?id=OHR.SemoisRiver_EN-CA3031671072_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-27 | [Olive grove, Valle d'Itria, Puglia, Italy (© Massimo Santi/Shutterstock)](https://cn.bing.com/th?id=OHR.TrulliGrove_EN-CA2657782141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-26 | [Maasai giraffes, Amboseli National Park, Kenya (© Art Wolfe/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.AmboseliGiraffes_EN-CA6129428319_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
