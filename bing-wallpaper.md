@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-01 | [Kilchurn Castle reflecting in Loch Awe, Argyll and Bute, Scotland (© Tom Mackie/plainpicture)](https://cn.bing.com/th?id=OHR.KilchurnAutumn_EN-CA3966319675_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-11-30 | [Mont-Saint-Michel, Normandy, France (© Captain Skyhigh/Getty Images)](https://cn.bing.com/th?id=OHR.MtStMichel_EN-CA3538100784_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-11-29 | [Clearing storm at sunset, Mount Assiniboine Provincial Park, Canada (© Jeff Lewis/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.AssiniboineTS_EN-CA8487090970_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
