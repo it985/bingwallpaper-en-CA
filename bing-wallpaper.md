@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-08 | [Lake Ontario in the winter season, Toronto (© Brendan Riley/Shutterstock)](https://cn.bing.com/th?id=OHR.TorontoWinterSkyline_EN-CA1219816615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-07 | [Old Town in Helsinki, Finland (© Oleksiy Mark/Shutterstock)](https://cn.bing.com/th?id=OHR.HelsinkiDusk_EN-CA1340856865_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-06 | [Tufa formation on Mono Lake, California, USA (© Susanna Patras/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.MonoTufa_EN-CA0552920922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
