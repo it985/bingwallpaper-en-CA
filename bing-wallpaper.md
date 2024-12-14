@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-15 | [Northern hawk-owl, Canada (© pchoui/Getty Images)](https://cn.bing.com/th?id=OHR.NorthernHawkOwl_EN-CA1011187644_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-14 | [Christmas market, St. Stephen's Basilica, Budapest, Hungary (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.ChristmasBudapest_EN-CA2975655898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-13 | [Poinsettia or Christmas flower (© David Hosking/NPL/Minden Pictures)](https://cn.bing.com/th?id=OHR.WildPoinsettia_EN-CA8337663672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
