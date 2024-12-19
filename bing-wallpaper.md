@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-20 | [Sibiu Christmas Market, Romania (© Calin Stan/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.SibiuRomania_EN-CA3979703489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-19 | [English National Ballet performing 'The Nutcracker' (© Caroline Holden/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.NutcrackerBallet_EN-CA9033194667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-18 | [Traditional red fishermen's cabins on the shore of Reinefjorden, Norway (© Pilat666/Getty Images)](https://cn.bing.com/th?id=OHR.ReinefjordenNorway_EN-CA2665608310_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
