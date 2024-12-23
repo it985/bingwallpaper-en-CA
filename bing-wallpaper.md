@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-24 | [Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-CA3928943615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-23 | [Christmas tree at Crystal Pier, Pacific Beach, San Diego, California, USA (© SamAntonioPhotography/Getty Images)](https://cn.bing.com/th?id=OHR.CrystalPier_EN-CA9816076133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-22 | [Halo around the sun, Ore Mountains, Saxony, Germany (© Martin Ruegner/Getty Images)](https://cn.bing.com/th?id=OHR.SolsticeHalo_EN-CA3461734834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
