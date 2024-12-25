@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-26 | [Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.Christmas24_EN-CA4696082080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-25 | [Christmas market scene in Germany (© Cyril Gosselin/Getty Images)](https://cn.bing.com/th?id=OHR.SantaSnowglobe_EN-CA4151337834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-24 | [Two red-crowned cranes in Kushiro, Hokkaido, Japan (© Wirestock, Inc./Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FestivusCranes_EN-CA3928943615_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
