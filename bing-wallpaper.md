@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-28 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-CA4421792798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-27 | [Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDay24_EN-CA4323476281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-26 | [Christmas trees with the Three Sisters mountain in the background, Canmore, Alberta (© Nick Fitzhardinge/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.Christmas24_EN-CA4696082080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
