@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-29 | [A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-CA4867100726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-28 | [Lake Bled, Slovenia (© Kesu01/Getty Images)](https://cn.bing.com/th?id=OHR.LakeBledSnow_EN-CA4421792798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-27 | [Gastown steam clock in Vancouver, British Columbia, Canada (© J Duquette/iStock/Getty Images)](https://cn.bing.com/th?id=OHR.BoxingDay24_EN-CA4323476281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
