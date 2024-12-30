@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-12-31 | [Tasmanian snow gum and pandani plants near Lake Dobson, Mount Field National Park, Tasmania, Australia (© Whitworth Images/Getty Images)](https://cn.bing.com/th?id=OHR.MountFieldNP_EN-CA5418391081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-12-30 | [Borobudur temple, Java, Indonesia (© Robertharding/Shutterstock)](https://cn.bing.com/th?id=OHR.BorobudurBells_EN-CA5184067886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-12-29 | [A green sea turtle swims in the Pacific Ocean near the French overseas territory of New Caledonia (© Damsea/Shutterstock)](https://cn.bing.com/th?id=OHR.CoralTurtle_EN-CA4867100726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
