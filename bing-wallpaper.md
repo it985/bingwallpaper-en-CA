@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-03 | [Star trails over Ardez village, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-CA6090409096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-02 | [Polar bears at play in the Arctic (© Ondrej Prosicky/Shutterstock)](https://cn.bing.com/th?id=OHR.PolarBearSwim_EN-CA5875728051_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-01 | [Fireworks over Parliament Hill with reflection, Ottawa (© naibak/Moment/Getty Images)](https://cn.bing.com/th?id=OHR.CANYE24_EN-CA5635305751_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
