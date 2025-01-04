@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-05 | [Bản Giốc – Detian Falls on the Quây Sơn River, Vietnam (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.VietnamFalls_EN-CA6990371995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-04 | [Radcliffe Camera and All Souls College, University of Oxford, England (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienOxford_EN-CA6554362108_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-03 | [Star trails over Ardez village, Graubunden, Switzerland (© Roberto Moiola/Getty Images)](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_EN-CA6090409096_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
