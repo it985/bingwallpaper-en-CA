@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-08 | [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-CA8083856326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-07 | [Flooded crypt, Basilica of San Francesco, Ravenna, Italy (© Andrea Pucci/Getty Images)](https://cn.bing.com/th?id=OHR.RavennaBasilica_EN-CA7555362704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-06 | [Plum-headed parakeet at Shimoga, Karnataka, India (© Hira Punjabi/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.PlumParakeet_EN-CA7233766984_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
