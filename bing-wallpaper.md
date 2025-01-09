@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-10 | [Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.NamibiaDunes_EN-CA8993588239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-09 | [Snow on the Great Wall, China (© View Stock/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.GreatWallStairs_EN-CA8728749257_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-08 | [Moeraki Boulders at sunset, South Island, New Zealand (© Douglas Pearson/eStock Photo)](https://cn.bing.com/th?id=OHR.BouldersNZ_EN-CA8083856326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
