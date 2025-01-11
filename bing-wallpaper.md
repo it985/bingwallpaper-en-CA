@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-12 | [Heri es-Swani in Meknes, Morocco (© Calin Stan/Shutterstock)](https://cn.bing.com/th?id=OHR.MeknesMorocco_EN-CA1168151057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-11 | [Abraham Lake, Alberta, Canada (© Basic Elements Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BubbleLake_EN-CA0662387726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-10 | [Sossusvlei sand dunes, Namib desert, Namibia (© Airpano/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.NamibiaDunes_EN-CA8993588239_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
