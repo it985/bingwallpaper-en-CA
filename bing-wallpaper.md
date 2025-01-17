@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-18 | [Looking over the Gulf of Naples towards Mount Vesuvius, Italy (© ezypix/Getty Images)](https://cn.bing.com/th?id=OHR.NapoliPizza_EN-CA6013158057_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-17 | [High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-CA4696492135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-17 | [High Peaks Trail at Pinnacles National Park, San Benito County, California, USA (© yhelfman/Getty Images)](https://cn.bing.com/th?id=OHR.PinnaclesPeaks_EN-CA0590562909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
