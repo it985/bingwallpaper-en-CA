@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-28 | [Zoroaster Temple, Grand Canyon National Park, Arizona, USA (© Nick Lake/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.CanyonSnow_EN-CA0932914294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-27 | [European beech forest in Belgium (© Philippe Moes/Minden Pictures)](https://cn.bing.com/th?id=OHR.FrostedBeech_EN-CA0729211596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-26 | [Porto, Portugal (© Starcevic/Getty Images)](https://cn.bing.com/th?id=OHR.PortoSunset_EN-CA0543189674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
