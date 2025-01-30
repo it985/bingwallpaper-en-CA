@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-01-31 | [Granville Island in Vancouver, British Columbia, Canada (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.BoatShowVan_EN-CA2061504870_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-01-30 | [Dragon dance, Wuhan, China (© Miao Jian/Wuhan Morning Post/Visual China Group via Getty Images)](https://cn.bing.com/th?id=OHR.LunarDragon_EN-CA1697133736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-01-29 | [Short-eared owl hunting in heavy snow (© Dilshan Muthalib/Getty Images)](https://cn.bing.com/th?id=OHR.FlyingOwl_EN-CA1475306632_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
