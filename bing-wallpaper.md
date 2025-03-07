@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-08 | [Plum blossoms, China (© zhikun sun/Getty Images)](https://cn.bing.com/th?id=OHR.PlumBlossom_EN-CA9667491704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-07 | [Walterdale Bridge in Edmonton, Canada (© ronniechua/Getty Images)](https://cn.bing.com/th?id=OHR.WalterdaleBridge_EN-CA9868203704_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-06 | [Aerial view of Khao Sok National Park, Surat Thani, Thailand (© Peetatham Kongkapech/Getty Images)](https://cn.bing.com/th?id=OHR.SuratThani_EN-CA9452161985_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
