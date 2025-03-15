@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-16 | [Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.WhaleFestival_EN-CA5433600142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-15 | [Dolmen of Sorginetxe, Basque Country, Alava, Spain (© David Herraez Calzada/plainpicture)](https://cn.bing.com/th?id=OHR.BasqueDolmen_EN-CA3900622159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-14 | [Holi celebration in Jaipur, India (© powerofforever/Getty Images)](https://cn.bing.com/th?id=OHR.HoliColors_EN-CA2415049619_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
