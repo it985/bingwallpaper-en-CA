@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-18 | [Samuel Beckett Bridge, Dublin, Ireland (© Colm Keating/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.BeckettBridge_EN-CA5658772029_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-17 | [Baby giant panda in the snow, China (© Cheryl Schneider/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.PandaSnow_EN-CA0601748068_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-16 | [Ucluelet, Vancouver Island, British Columbia (© AWL Images/DanitaDelimont.com)](https://cn.bing.com/th?id=OHR.WhaleFestival_EN-CA5433600142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
