@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-03-27 | [Cherry blossoms in Queen Elizabeth Park, Vancouver, Canada (© Kim Rogerson/Getty Images)](https://cn.bing.com/th?id=OHR.Cherry25Blossom_EN-CA1808645687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-26 | [Hobbit-hole in Hobbiton Movie Set, Waikato, New Zealand (© Kim Petersen/Alamy)](https://cn.bing.com/th?id=OHR.HobbitHole_EN-CA8754229294_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-25 | [Desert elephant with calf feeding on tall grass, Namibia (© Christophe Courteau/Minden Pictures)](https://cn.bing.com/th?id=OHR.ElephantGrass_EN-CA8436870295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
