@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-01 | [Ostuni at dusk, Apulia, Italy (© Feng Wei Photography/Getty Images)](https://cn.bing.com/th?id=OHR.ItalyOstuni_EN-CA1782279768_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-03-31 | [Aerial view of Sydney Harbour, New South Wales, Australia (© jamenpercy/Getty Images)](https://cn.bing.com/th?id=OHR.SydneyHarbour_EN-CA9853843667_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-03-30 | [Superbloom in Carrizo Plain National Monument, California, United States (© Robb Hirsch/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.CarrizoBloom_EN-CA9693070982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
