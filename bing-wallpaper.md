@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-08 | [Whistler and Blackcomb mountains, British Columbia (© Pierre Leclerc/Shutterstock)](https://cn.bing.com/th?id=OHR.WhistlerSnowboard_EN-CA9156013019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-07 | [Yellow warbler in Canada (© mirceax/Getty Images)](https://cn.bing.com/th?id=OHR.YellowWarbler_EN-CA8652491444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-06 | [Gaztelugatxe islet at sunset, Basque Country, Spain (© Eloi_Omella/Getty Images)](https://cn.bing.com/th?id=OHR.GaztelugatxeSunset_EN-CA8176973652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
