@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-23 | [Grand Prismatic Spring, Yellowstone National Park, Wyoming, United States (© Ajith Kumar/Getty Images)](https://cn.bing.com/th?id=OHR.YellowstoneSpring_EN-CA7520480120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-22 | [Joshua trees under the Milky Way, California, United States (© Chao Zhang/Getty Images)](https://cn.bing.com/th?id=OHR.JoshuaStars_EN-CA7462331125_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-21 | [Wild baby rabbits in spring (© Fiona McAllister Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BunnyLove_EN-CA7409244062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
