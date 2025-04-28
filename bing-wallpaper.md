@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-04-29 | [Impala in Moremi Game Reserve, Botswana (© Paul Souders/Getty Images)](https://cn.bing.com/th?id=OHR.OrangeImpala_EN-CA7752458355_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-04-28 | [Grove of redwoods in Redwood National and State Parks, California, United States (© Bob Pool/Getty Images)](https://cn.bing.com/th?id=OHR.RedwoodGrove_EN-CA7714485846_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-04-27 | [Bruce Peninsula National Park, Ontario (© Maurice Prokaziuk/Getty Images)](https://cn.bing.com/th?id=OHR.BrucePeninsula_EN-CA7672437122_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
