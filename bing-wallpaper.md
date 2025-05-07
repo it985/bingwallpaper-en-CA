@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-08 | [Dunluce Castle, County Antrim, Northern Ireland (© DieterMeyrl/Getty Images)](https://cn.bing.com/th?id=OHR.DunluceIreland_EN-CA9898003199_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-07 | [An ultralight aircraft flying over the sands of Namibia (© Burt Johnson/Alamy Stock Photo)](https://cn.bing.com/th?id=OHR.FlyoverNamibia_EN-CA6702004315_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-06 | [Torres del Paine National Park, Patagonia, Chile (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.TorresChile_EN-CA6313308803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
