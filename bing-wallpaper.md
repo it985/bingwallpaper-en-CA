@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-11 | [Minnesota State Capitol, St. Paul, Minnesota, United States (© lavin photography/Getty Images)](https://cn.bing.com/th?id=OHR.MinnesotaRotunda_EN-CA2092943439_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-10 | [Canadian Tulip Festival in Ottawa (© Danielle Donders/Getty Images)](https://cn.bing.com/th?id=OHR.Tulip25Fest_EN-CA8965169062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-09 | [Donkeys in a valley near Rhyolite, Nevada, United States (© Moelyn Photos/Getty Images)](https://cn.bing.com/th?id=OHR.RhyoliteDonkeys_EN-CA1691842106_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
