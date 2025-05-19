@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-05-20 | [British Columbia Parliament Buildings (© bluejayphoto/Getty Images)](https://cn.bing.com/th?id=OHR.Victoria25Day_EN-CA7366662879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-05-19 | ['The Spirit of Electricity' by Raoul Dufy, Museum of Modern Art, Paris, France (© BERTRAND GUAY/AFP via Getty Images)](https://cn.bing.com/th?id=OHR.DufyRoom_EN-CA3157009683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-05-18 | [A delta in the Venetian Lagoon, Italy   (© Dimitri Weber/Amazing Aerial Agency)](https://cn.bing.com/th?id=OHR.VeniceLagoon_EN-CA3036108114_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
