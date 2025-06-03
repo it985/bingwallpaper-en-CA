@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-04 | [Bicycles on a bridge in Utrecht, Netherlands (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.BicyclesUtrecht_EN-CA8084495077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-03 | [Fogo Island, Newfoundland and Labrador (© Greg Johnston/Photodisc/Getty Images)](https://cn.bing.com/th?id=OHR.Fogoisland_EN-CA7909293676_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-02 | [Barrier reef off Grande Terre, New Caledonia, France (© Karsten Wrobel/Getty Images)](https://cn.bing.com/th?id=OHR.GrandeTerreReef_EN-CA7723959953_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
