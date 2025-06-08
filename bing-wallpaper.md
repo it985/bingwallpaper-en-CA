@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-09 | [Steller sea lions, Vancouver Island, British Columbia (© Steve Woods Photography/Getty Images)](https://cn.bing.com/th?id=OHR.StellarSeaLions_EN-CA9034182046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-08 | [Summit of Pine Mountain, Angeles National Forest, California, United States (© Matthew Kuhns/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.PacificCrestTrail_EN-CA3756267540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-07 | [Arromanches-les-Bains in Normandy, France (© Horia Merla/Getty Images)](https://cn.bing.com/th?id=OHR.NormandyBeach_EN-CA8706608973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
