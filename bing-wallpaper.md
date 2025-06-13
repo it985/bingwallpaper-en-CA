@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-14 | [Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)](https://cn.bing.com/th?id=OHR.CanadianGPQuebec_EN-CA4428568673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-13 | [Chisos Mountains, Big Bend National Park, Texas, United States (© Dean Fikar/Getty Images)](https://cn.bing.com/th?id=OHR.BigBendChisos_EN-CA9916478769_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-12 | [Greater flamingos, Lüderitz, Namibia (© Karine Aigner/TANDEM Stills + Motion)](https://cn.bing.com/th?id=OHR.FlamingosNamibia_EN-CA9758738139_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
