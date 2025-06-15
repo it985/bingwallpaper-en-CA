@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2025-06-16 | [Lesser rhea adult male with chicks, Torres del Paine National Park, Patagonia, Chile (© Ignacio Yufera/Minden Pictures)](https://cn.bing.com/th?id=OHR.RheaDad_EN-CA4283267159_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2025-06-15 | [Cinque Torri, Dolomites, Italy (© usabin/Getty Images)](https://cn.bing.com/th?id=OHR.DolomitiEstate_EN-CA4112246625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2025-06-14 | [Montreal skyline reflecting in St. Lawrence River, Quebec (© Walter Bibikow/Stone/Getty Images)](https://cn.bing.com/th?id=OHR.CanadianGPQuebec_EN-CA4428568673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
